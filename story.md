@@ -283,7 +283,7 @@ Moje ciało.
 Otworzyłem oczy. Moje ciało drżało na zimnej glinie. Wygramoliłem się z grobu. Leżałem na plecach, wdychając zapach świeżo rozkopanej ziemi, a słońce ogrzewało mi twarz.
 Stanąłem powoli na drżących nogach. Poszedłem do świątyni. Chwyciłem dłońmi za całun i przeciągnąłem ojca z katafalku na wózek. Pomału nadjechałem wózkiem nad krawędź grobu. Podklinowałem koła.  
 Wsunąłem do grobu deskę, oparłem z jednej strony o dno, z drugiej o brzeg. Przechyliłem wózek, trzymając za całun, powoli zsunąłem ciało na dno grobu. Ostrożnie wysunąłem spod niego deskę.  
-Odstawiłem wózek. Chwyciłem łopatę. Była w doskonałym stanie, osadzona na zupełnie nowym, jesionowym stylisku. Drewno było idealnie p0wygładzone i pokryte bejcą.  
+Odstawiłem wózek. Chwyciłem łopatę. Była w doskonałym stanie, osadzona na zupełnie nowym, jesionowym stylisku. Drewno było idealnie wygładzone i pokryte bejcą.  
 Chwiejąc się, wbiłem łopatę w wał pokruszonej gliny i zacząłem zasypywać grób. Całun powoli znikał przykryty warstwą szarych, lepkich grudek. Marzyłem już tylko o tym, żeby to się skończyło. Żeby w końcu ziemia zamknęła się nad nim.  
 Usypałem pierwszą warstwę, na wysokość stopy. Zabrałem się za jej ubijanie.  
 Przy pierwszym uderzeniu ubijak pękł na pół. 
