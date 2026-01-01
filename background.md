@@ -36,3 +36,12 @@ Do wioski dociera ojciec Jonasa. Garany próbują dostać się do spichlerza. Uz
 Ojciec Jonasa z zaskoczenia trafia Tarwosa w pęcinę. Ucieka przed nim na podwórze z drewutnią, wściekły Tarwos goni go. Zabija go toporem, samemu przy tym nadziewając się na rydel.
 Tarwos był ich przewodnikiem, jest najpotężniejszy. Garany podążają za nim ślepo, dlatego po śmiertelnym ranieniu tarwosa przez Jakoba, uciekają za nim. To kończy atak.
 Bestie uciekają wschodnią bramą, tratują po drodze Raimona.
+
+# Religia
+W świecie przedstawionym stary porządek został zastąpiony nowym. Analogicznie do chrześcijaństwa zastępującego pogaństwo.
+Można się domyślać, że nie nastąpiło to pokojowo.
+Kult Danu jest zakazany. Receptury są ściśle strzeżoną tajemnicą. Tylko wtajemniczeni wiedzą o Nemetonie.
+Groźba Mirelli (spalą mnie na stosie) jest realna.
+Nowy porządek symbolizują nazwy romańskie, a także z naszej tradycji chrześcijańskiej: Kaspar, Baltazar. Stary porządek to nazwy celtyckie.
+Mirella służy staremu porządkowi. Jonas służy nowemu, funkcja Strażnika Umarłych podlega bezpośrednio kapłanom nowego porządku.
+To, że Mirella jest zła na siebie, że wygadała fragment receptury, nie znaczy, że Jonasowi nie ufa. Ostrzega go, ale ma do niego pełne zaufanie. Jest zła, że stało się to mimowolnie.
