@@ -117,10 +117,12 @@ Wybuchła śmiechem. Aż zgięła się w pół, trzymając się za brzuch.
 – Nie mogłam się doczekać, kiedy ci to powiem! Twoja mina! – wciąż chichotała, łzy spływały jej po policzkach.  
 Oczywiście. Żartuje sobie ze mnie. Udało jej się kompletnie mnie skołować. Zdałem sobie sprawę, że stoję z rozdziawionymi ustami. Zamknąłem je pospiesznie. 
 Urwała nagle. Wyprostowała się, patrząc mi w twarz. Coś w jej spojrzeniu zmiękło.
-– Jonas... – powiedziała cicho. Podeszła bliżej. – Chciałbyś…?
+– Jonas… – powiedziała cicho. Podeszła bliżej. – Chciałbyś…?
 Przełknąłem ślinę. To w ogóle nie był żart.
 Powoli skinąłem głową.
-Spojrzała mi głęboko w oczy. Zdjęła z głowy wianek i zdecydowanym ruchem odrzuciła za siebie. Zaczęła powoli rozplatać warkocz.
+Jej twarz rozpromieniła się w szerokim uśmiechu. Zerwała wianek z głowy, zakręciła się w miejscu i cisnęła go z całej siły – patrzyłem, jak wiruje w powietrzu i znika między drzewami.
+Patrzyliśmy na siebie, oddychając głęboko, w tym samym rytmie.
+Zaczęła rozplatać warkocz.
 ***  
 Gdy wracaliśmy, w sosnowym borze szarzał już świt. Tuż przed nami, wprost z igliwia, wzbiła się w powietrze lerka.  
 Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Wzleciała wysoko i zaczęła krążyć między koronami sosen, wydając z siebie kaskady dźwięków niosące się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała łagodnie do niskich, miękkich tonów, żeby znowu wybuchnąć wartkim potokiem. Te same motywy powtarzały się rytmicznie, ale za każdym razem inaczej – raz nieco szybciej, lekko i swobodnie, to znów przeciągając się tkliwie i kojąco.  
