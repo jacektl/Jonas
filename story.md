@@ -68,7 +68,7 @@ Pokiwałem głową. Pracowaliśmy dalej w milczeniu.
 
 Nagłe ukłucie ostrego bólu wyrwało mnie ze wspomnień. Ostrożnie wyjąłem kolec, który wbił mi się w dłoń. Czarne róże mają kolce niczym kocie pazury. Otarłem pot z czoła. Słońce chyliło się powoli ku zachodowi, ale wciąż grzało niemiłosiernie. Wyprostowałem się i rozejrzałem. Zostało jeszcze kilkanaście krzewów. Rozciągnąłem ramiona i zabrałem się z powrotem do pracy.
 
-Kiedy skończyłem, wziąłem kosz i ruszyłem na podwórze, skąd cały czas dobiegał odgłos ostrzenia narzędzi. Ujrzałem ojca pochylonego nad rydlem – nawet nie podniósł na mnie wzroku. W skupieniu prowadził kamień po krawędzi. W pewnym momencie przerwał, odłożył osełkę i sprawdził ostrze paznokciem. Obrócił rydel, chwycił osełkę i znów zaczął miarowo przesuwać ją po ostrzu.
+Kiedy skończyłem, wziąłem kosz i ruszyłem na podwórze, skąd cały czas dobiegał odgłos ostrzenia narzędzi. Ujrzałem ojca pochylonego nad rydlem – nawet nie podniósł na mnie wzroku. W skupieniu prowadził kamień po krawędzi. W pewnym momencie przerwał, odłożył osełkę i sprawdził ostrze paznokciem. Obrócił rydel, chwycił osełkę i znów zaczął miarowo przesuwać ją po krawędzi.
 
 – Czerń zaczęła chwytać – zameldowałem. – Wyciąłem wszystko, pójdę spalić.
 
@@ -96,7 +96,7 @@ Ubrałem się i podszedłem do ojca. Wciąż ostrzył rydel.
 
 – Teraz mam to zrobić? Chciałem…
 
-– Ubijak – przerwał mi. – Będzie potrzebny. Czuję to.
+– Ubijak – przerwał mi – będzie potrzebny. Czuję to.
 
 Z ojcem nie było dyskusji. Te jego przeczucia. Zawsze tak robił. Przez chwilę się wahałem, stojąc bez ruchu. W końcu westchnąłem, poszedłem do szopy i zacząłem szukać dłuta.
 
@@ -144,7 +144,7 @@ Położyła ręce na biodrach i wypięła pierś, uśmiechając się szeroko:
 
 – Bezbłędnie!
 
-Przełknąłem ostatni kawałek.
+Szła przede mną skocznym krokiem. Przełknąłem ostatni kawałek.
 
 – Cieszę się – powiedziałem.
 
@@ -166,9 +166,9 @@ Ruszyła pierwsza. Po kilku krokach nagle skręciła w stronę lasu.
 
 – Nie idziemy do wsi? – zapytałem.
 
-– Jest jeszcze jeden warunek. – odparła. –  Każda Córka Danu musi go spełnić.
+– Jest jeszcze jeden warunek – odparła. – Każda Córka Danu musi go spełnić.
 
-– Mogę pomóc? – spytałem.
+– Mogę pomóc?
 
 – No przecież dlatego po ciebie przyszłam.
 
@@ -206,7 +206,7 @@ Przesuwając palcami, wyczułem pod mchem ledwo widoczne, regularne wyżłobieni
 
 – A wcześniej Sidhe. To ich symbole.
 
-Rozejrzałem się wokół. Widziałem niezwykle ostro, mogłem rozróżnić poszczególne źdźbła w jaskrawo zielonej trawie. Mój wzrok unosił się coraz wyżej. Niebo nad drzewami jarzyło się intensywną czerwienią, przechodząc płynnie w złocistą barwę dojrzałej pszenicy, która zamieniła się w głęboki ciemny błękit. Na jego tle zamigotały pierwsze gwiazdy.
+Rozejrzałem się wokół. Widziałem niezwykle ostro; rozróżniałem pojedyncze źdźbła w jaskrawo zielonej trawie. Wzrok powędrował ku koronom drzew. Nad nimi niebo jarzyło się intensywną czerwienią, która płynnie przechodziła w złoto dojrzałej pszenicy, by wyżej stężeć w głęboki, ciemny błękit. Na jego tle zamigotały pierwsze gwiazdy.
 
 Mirella stała przede mną w milczeniu. Gdy spojrzałem na nią, powiedziała:
 
@@ -240,7 +240,7 @@ Przełknąłem ślinę. To w ogóle nie był żart.
 
 Powoli skinąłem głową.
 
-Jej twarz rozpromieniła się w szerokim uśmiechu. Zerwała wianek z głowy, zakręciła się w miejscu i cisnęła go z całej siły – patrzyłem, jak wiruje w powietrzu i znika między drzewami.
+Jej twarz rozpromieniła się w szerokim uśmiechu. Zerwała wianek z głowy, zakręciła się w miejscu i cisnęła nim z całej siły – patrzyłem, jak wiruje w powietrzu i znika między drzewami.
 
 Patrzyliśmy na siebie, oddychając głęboko, w tym samym rytmie.
 
@@ -250,9 +250,9 @@ Zaczęła rozplatać warkocz.
 
 Gdy wracaliśmy, w sosnowym borze powoli szarzał świt. Tuż przed nami, wprost z igliwia, wzbiła się w powietrze lerka.
 
-Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Wzleciała wysoko i zaczęła krążyć między koronami sosen, wydając z siebie kaskady dźwięków niosące się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała łagodnie do niskich, miękkich tonów, żeby znowu wybuchnąć wartkim potokiem. Te same motywy powtarzały się rytmicznie, ale za każdym razem inaczej – raz nieco szybciej, lekko i swobodnie, to znów przeciągając się tkliwie i kojąco.
+Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Wzleciała wysoko i zaczęła krążyć między koronami sosen, wydając z siebie kaskady dźwięków niosące się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała łagodnie do niskich, miękkich tonów, żeby znowu wybuchnąć wartkim potokiem.
 
-Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej. Zapach jej włosów zmieszał się z aromatem żywicy i pokrytych rosą igieł. Melodia falowała nad budzącym się do życia lasem, na przemian przybliżając się i oddalając. Lerka śpiewała coraz spokojniej, jej trele wydłużyły się melancholijnie, przerywane coraz dłuższymi pauzami, aż w końcu jej głos zamienił się w pojedyncze, przeciągłe ćwierkanie. Ostatni świergot zawibrował delikatnie i ucichł.
+Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej. Zapach jej włosów zmieszał się z aromatem żywicy i pokrytych rosą igieł. Melodia falowała nad budzącym się do życia lasem, na przemian przybliżając się i oddalając. Lerka śpiewała coraz spokojniej, jej trele wydłużyły się tkliwie i kojąco, przerywane coraz dłuższymi pauzami, aż w końcu jej głos zamienił się w pojedyncze, przeciągłe ćwierkanie. Ostatni świergot zawibrował delikatnie i ucichł.
 
 Poczułem, jak jej ramię nagle drgnęło pod moją dłonią. Spojrzałem na nią pytająco.
 
@@ -260,7 +260,9 @@ Poczułem, jak jej ramię nagle drgnęło pod moją dłonią. Spojrzałem na ni�
 
 Miała rację. Wieś była już nieopodal. Nie było słychać bębnów, piszczałek, śpiewów, nic. Tylko szum lasu, brzęczenie owadów, raz na jakiś czas z podszytu odezwała się sikorka albo zagwizdał kos.
 
-Pojedynczy trzask, jakby coś ciężkiego uderzyło w pień drzewa. Nasze ciała drgnęły jednocześnie. Kolejny. Głośniej. Bliżej.
+Pojedynczy trzask, jakby coś ciężkiego uderzyło w pień drzewa. Nasze ciała drgnęły jednocześnie.
+
+Kolejny. Głośniej. Bliżej.
 
 Nagle cały las zaszumiał gwałtownie od trzepotu ptaków zrywających się do lotu, zewsząd rozlegały się ich krótkie, ostrzegawcze gwizdy.
 
@@ -276,7 +278,7 @@ Wtedy zobaczyłem.
 
 Rozcapierzone palce wbiły się w igliwie.
 
-Ręka. Ludzka ręka. Potężna.
+Ręka. Potężna.
 
 Stwór miał ludzki tułów. Ale nie przypominał człowieka.
 
@@ -306,7 +308,7 @@ Leżał na boku, zapadnięty w igliwie, cały umazany krwią. Był ogromny. Powo
 
 Przyjrzałem się nienaturalnie podwiniętej nodze. Powyżej szerokiej, rozszczepionej racicy sierść była zlepiona czarną, zaschniętą krwią. Zauważyłem głęboką ranę na pęcinie. Ścięgno było przecięte równo, do kości.
 
-Stopą odchyliłem mu łeb. Zobaczyłem śmiertelną ranę. Tuż nad obojczykiem, czyste, głębokie pchnięcie szerokim ostrzem. Lekko zakrzywionym pośrodku. Bardzo dobrze znałem ten kształt.
+Stopą odchyliłem mu łeb. Zobaczyłem śmiertelną ranę. Tuż nad obojczykiem, czyste, głębokie pchnięcie szerokim ostrzem. Lekko zakrzywionym pośrodku.
 
 To była rana zadana rydlem.
 
@@ -344,7 +346,7 @@ Szerokie rozbryzgi krwi wyraźnie się odznaczały na rozsypanych szczapach. Sze
 
 Leżał na wznak, przygwożdżony do ziemi olbrzymim toporem wbitym głęboko w pierś. Twarz miał zalaną spienioną juchą, rozlaną wokół szerokim półksiężycem. W dłoni wciąż ściskał trzonek rydla.
 
-– Jonas…? – usłyszałem niepewny głos Jany.
+– Jonas…? – Usłyszałem niepewny głos Jany.
 
 Stałem bez ruchu i patrzyłem.
 
@@ -398,7 +400,7 @@ Topór wyszedł. Odrzucam go na bok.
 
 Kucam. Jedna ręka pod karkiem, druga pod kolanami. Podnoszę. Ciało jest ciężkie. Kładę na wózku.
 
-Jana cały czas krzyczy. Ma czerwoną twarz. Dygocze. Osuwa się na kolana.
+Jana dygocze. Osuwa się na kolana.
 
 Pcham wózek przed sobą.
 
@@ -410,7 +412,7 @@ Pcham wózek przed sobą.
 
 Plac we wsi. Ziemia cała we krwi. Wygaszone ognisko. Wymijam rannych. To są sprawy żywych.
 
-Cielsko potwora pod ścianą spichlerza.. Długi, ostry dziób. Ludzki tułów przebity widłami. W dłoni włócznia z kamiennym grotem. Czarne pióra. Żółte stopy. Trzy palce do przodu i jeden do tyłu. Pazury.
+Cielsko potwora pod ścianą spichlerza. Długi, ostry dziób. Ludzki tułów przebity widłami. W dłoni włócznia z kamiennym grotem. Czarne pióra. Żółte stopy. Trzy palce do przodu i jeden do tyłu. Pazury.
 
 Wiem, co to jest. Garan.
 
@@ -569,4 +571,3 @@ Chwiejąc się, wbiłem łopatę w wał pokruszonej gliny i zacząłem zasypywa�
 Usypałem pierwszą warstwę, na wysokość stopy. Zabrałem się za jej ubijanie.
 
 Przy pierwszym uderzeniu ubijak pękł na pół.
-
