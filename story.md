@@ -56,7 +56,7 @@ Zastygła nagle. Rzuciła na mnie czujne spojrzenie.
 
 – I nikomu ani słowa, bo mnie spalą na stosie.
 
-Nie miałem pojęcia, czy żartuje, czy mówi poważnie. Zamilkłem. Odgarniałem ziemię, żeby odsłonić boczne odgałęzienia. Powoli zbierałem się na odwagę i w końcu zapytałem:
+Nie miałem pojęcia, czy żartuje, czy mówi poważnie. Zamilkłem. Odgarniałem ziemię, żeby odsłonić boczne odgałęzienia. Powoli zbierałem się na odwagę.
 
 – Kiedy się znowu zobaczymy?
 
@@ -144,7 +144,7 @@ Położyła ręce na biodrach i wypięła pierś, uśmiechając się szeroko:
 
 – Bezbłędnie!
 
-Na chwilę zamilkła i szła przede mną skocznym krokiem. Przełknąłem ostatni kawałek.
+Przełknąłem ostatni kawałek.
 
 – Cieszę się – powiedziałem.
 
@@ -490,7 +490,7 @@ Czeka. Ponownie kiwam głową.
 
 – Dobrze. Czy jesteś gotowy, by pełnić posługę Strażnika Umarłych?
 
-Nie, mówi głos w mojej głowie. Nie jestem gotowy. Po raz trzeci kiwam głową.
+Nie, mówi głos w mojej głowie. Po raz trzeci kiwam głową.
 
 – Doskonale. Nie zabieram ci już czasu. Masz dużo pracy przed sobą. Za trzy dni przybędę ze skrybą, odbiorę od ciebie przysięgę.
 
