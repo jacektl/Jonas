@@ -444,9 +444,7 @@ Odsuwam kobietę. Podnosi oczy. Ramiona sztywne jak drewno.
 
 Wschodnia brama.
 
-Mirella. Kładzie rękę na mojej piersi. Wskazuje pod ścianę.
-
-Raimon. Stratowany. Głębokie szramy na piersi i brzuchu. Żebra wystają przez skórę. Twarz rozbita.
+Mirella. Kładzie rękę na mojej piersi. Wskazuje pod ścianę. Raimon.
 
 Podnoszę ciało i kładę na wózku. Jest lekkie.
 
