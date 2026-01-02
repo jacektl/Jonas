@@ -26,7 +26,7 @@ Uklęknąłem. Owiał mnie gorzki, mulisty zapach kwiatów. Wymacałem korzenie,
 
 Palce natknęły się na leżący na ziemi liść. Wyciągnąłem go i obejrzałem w słońcu. Czarne plamy.
 
-Obejrzałem dokładnie cały krzak. Choroba nie przeniosła się jeszcze w górne partie, ale trzeba było działać szybko. Wstałem i poszedłem po wiklinowy kosz, rozglądając się przy okazji po Ogrodzie. Przesuwałem wzrokiem po krzewach czarnych róż rosnących w długich, niskich pasach, wijących się od bramy świątynnej, okrążających stary grobowiec i biegnących aż do kwatery topielców. Spojrzałem w niebo. Słońce nieubłaganie pięło się w górę.
+Obejrzałem dokładnie cały krzak. Choroba nie przeniosła się jeszcze w górne partie, ale trzeba było działać szybko. Wstałem i poszedłem po wiklinowy kosz, rozglądając się przy okazji. Przesuwałem wzrokiem po krzewach czarnych róż rosnących w długich, niskich pasach, wijących się od bramy świątynnej, okrążających stary grobowiec i biegnących aż do kwatery topielców. Spojrzałem w niebo. Słońce nieubłaganie pięło się w górę.
 
 Wyciągnąłem nóż. Z twarzą przy samej ziemi zacząłem wycinać pędy u samej nasady i wrzucać je do kosza. Krzew powoli się przerzedzał, wpuszczając słońce w gęstwinę.
 
@@ -250,7 +250,7 @@ Zaczęła rozplatać warkocz.
 
 Gdy wracaliśmy, w sosnowym borze zaczynał szarzeć świt. Tuż przed nami, wprost z igliwia, wzbiła się w powietrze lerka.
 
-Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Wzleciała wysoko i zaczęła krążyć między koronami sosen, wydając z siebie kaskady dźwięków niosące się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała łagodnie do niskich, miękkich tonów, żeby znowu wybuchnąć wartkim potokiem.
+Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Zaczęła krążyć między koronami sosen, wydając z siebie kaskady dźwięków niosące się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała łagodnie do niskich, miękkich tonów, żeby znowu wybuchnąć wartkim potokiem.
 
 Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej. Zapach jej włosów zmieszał się z aromatem żywicy i pokrytych rosą igieł. Melodia falowała nad budzącym się do życia lasem, na przemian przybliżając się i oddalając. Lerka śpiewała coraz spokojniej, jej trele wydłużyły się tkliwie i kojąco, przerywane coraz dłuższymi pauzami, aż w końcu jej głos zamienił się w pojedyncze, przeciągłe ćwierkanie. Ostatni świergot zawibrował delikatnie i ucichł.
 
@@ -338,9 +338,7 @@ Po prawej stronie zobaczyłem szeroką wyrwę w płocie. Wyłamane sztachety, wy
 
 Przeszedłem po leżącej płasko, wyrwanej z zawiasów furtce. Krew ciemniała w słojach drewna, kleiła się do butów. Rozejrzałem się po podwórzu, przyglądając się rozbryzgom na klepisku. Szeroka smuga prowadziła do rozerwanej leszczynowej plecionki w opłotku. Za nią zobaczyłem rozbity dach przewróconego kurnika.
 
-Patrzyłem pod nogi na pokrytą ptasimi odchodami ziemię, szukając plam krwi, do których kleiło się fruwające wszędzie pierze. Wyminąłem kobietę, która klęczała, trzymając skrzeczącą rozpaczliwie, szarpiącą się kurę. Dalej ziemia była pokryta rzadkim, zmieszanym ze słomą błotem, rozoranym szerokim bruzdami.
-
-Doszedłem do zapadniętej pryzmy kompostu wymieszanego z gnojówką. Była rozciągnięta na boki, przeorana na wylot. Przez swojski, kwaśny zapach przebijał się mdlący odór juchy tarwosa. Przekroczyłem wyłamane drzwiczki do chlewika, gdzie kręciła się w kółko młoda świnka, pokwikując bezradnie. Wyrwa w ogrodzeniu prowadziła na kolejne podwórze.
+Patrzyłem pod nogi na pokrytą ptasimi odchodami ziemię, szukając plam krwi, do których kleiło się fruwające wszędzie pierze. Wyminąłem kobietę, która klęczała, trzymając skrzeczącą rozpaczliwie, szarpiącą się kurę. Doszedłem do zapadniętej pryzmy kompostu wymieszanego z gnojówką. Przez swojski, kwaśny zapach przebijał się mdlący odór juchy tarwosa. Przekroczyłem wyłamane drzwiczki do chlewika. Wyrwa w ogrodzeniu prowadziła na kolejne podwórze.
 
 Szerokie rozbryzgi krwi wyraźnie się odznaczały na rozsypanych szczapach. Szedłem dalej po śladach, które prowadziły między stosami polan, aż za drewutnię. I tam go znalazłem.
 
@@ -428,7 +426,7 @@ Zaraz obok na ziemi siedzi Mikel. Na jego kolanach strzaskana viella, popękane 
 
 Ściągam bębenek.
 
-Kładę głowę obok ciała.
+Głowa leży kilka kroków dalej. Peire. Kładę ją obok ciała.
 
 ***
 
