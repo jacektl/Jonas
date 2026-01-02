@@ -68,7 +68,7 @@ Pokiwałem głową. Pracowaliśmy dalej w milczeniu.
 
 Nagłe ukłucie ostrego bólu wyrwało mnie ze wspomnień. Ostrożnie wyjąłem kolec, który wbił mi się w dłoń. Czarne róże mają kolce niczym kocie pazury. Otarłem pot z czoła. Słońce chyliło się powoli ku zachodowi, ale wciąż grzało niemiłosiernie. Wyprostowałem się i rozejrzałem. Zostało jeszcze kilkanaście krzewów. Rozciągnąłem ramiona i zabrałem się z powrotem do pracy.
 
-Kiedy skończyłem, wziąłem kosz i ruszyłem na podwórze, skąd cały czas dobiegał odgłos ostrzenia narzędzi. Ujrzałem ojca pochylonego nad rydlem – nawet nie podniósł na mnie wzroku. W skupieniu prowadził kamień po krawędzi. W pewnym momencie przerwał, odłożył osełkę i sprawdził ostrze paznokciem. Obrócił rydel, chwycił osełkę i znów zaczął miarowo przesuwać ją po krawędzi.
+Kiedy skończyłem, wziąłem kosz i ruszyłem na podwórze, skąd cały czas dobiegał odgłos ostrzenia narzędzi. Ujrzałem ojca pochylonego nad rydlem – nawet nie podniósł na mnie wzroku. W skupieniu prowadził kamień po krawędzi. W pewnym momencie przerwał, odłożył osełkę i sprawdził ostrze paznokciem. Obrócił rydel, chwycił osełkę i znów zaczął miarowo przesuwać ją po ostrzu.
 
 – Czerń zaczęła chwytać – zameldowałem. – Wyciąłem wszystko, pójdę spalić.
 
