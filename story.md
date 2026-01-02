@@ -6,11 +6,11 @@ Wzruszyłem ramionami. Spojrzałem wymownie w stronę podwórza, skąd dobiegał
 
 – No weź… – ściszyła głos. – Będziesz się przejmował starym ponurakiem.
 
-Była za młoda, żeby to zrozumieć. Nasz ojciec miał rację: nikt nie lubi, kiedy przypomina mu się to, o czym wolałby zapomnieć. „To są sprawy żywych, my służymy umarłym” – tak powtarzał. Tonem, jakby chciał mnie pocieszyć.
+Była za młoda, żeby to zrozumieć. To są sprawy żywych, my służymy umarłym – tak zawsze mówił nasz ojciec, tonem, jakby chciał mnie pocieszyć.
 
 Zerknęła w tę samą stronę i mrugnęła do mnie porozumiewawczo. – Mirella będzie.
 
-Też mi nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Nie miałem co się tam pokazywać. Zawsze mnie unikali. A kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Odprowadzałem wtedy Mirellę, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
+Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Nie miałem co się tam pokazywać. Zawsze mnie unikali. A kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Odprowadzałem wtedy Mirellę, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
 
 – Jej naprawdę zależy. – Nie dawała za wygraną. – Nie bądź taki… Powiedz coś w końcu.
 
@@ -53,7 +53,7 @@ Zastygła nagle. Rzuciła na mnie czujne spojrzenie.
 
 – I nikomu ani słowa, bo mnie spalą na stosie.
 
-Nie miałem pojęcia, czy żartuje, czy mówi poważnie. Zamilkłem. Odgarniałem ziemię, żeby odsłonić boczne odgałęzienia. Powoli zbierałem się na odwagę.
+Nie miałem pojęcia, czy żartuje, czy mówi poważnie. Zamilkłem. Odgarniałem ziemię, żeby odsłonić boczne odgałęzienia.
 
 – Kiedy się znowu zobaczymy?
 
@@ -226,7 +226,7 @@ Wybuchła śmiechem. Aż zgięła się w pół, trzymając się za brzuch.
 
 – Nie mogłam się doczekać, kiedy ci to powiem! Twoja mina! – wciąż chichotała, łzy spływały jej po policzkach.
 
-Oczywiście. Żartuje sobie ze mnie. Udało jej się kompletnie mnie skołować. Zdałem sobie sprawę, że stoję z rozdziawionymi ustami. Zamknąłem je pospiesznie.
+Żartuje sobie ze mnie. Zdałem sobie sprawę, że stoję z rozdziawionymi ustami. Zamknąłem je pospiesznie.
 
 Urwała nagle. Wyprostowała się, patrząc mi w twarz. Coś w jej spojrzeniu zmiękło.
 
@@ -246,9 +246,11 @@ Zaczęła rozplatać warkocz.
 
 Gdy wracaliśmy, w sosnowym borze zaczynał szarzeć świt. Tuż przed nami, wprost z igliwia, wzbiła się w powietrze lerka.
 
-Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Zaczęła krążyć między koronami sosen, wydając z siebie kaskady dźwięków niosące się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała łagodnie do niskich, miękkich tonów, żeby znowu wybuchnąć wartkim potokiem.
+Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Zaczęła krążyć między koronami sosen, jej śpiew niósł się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała do niskich, miękkich tonów.
 
-Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej. Zapach jej włosów zmieszał się z aromatem żywicy i pokrytych rosą igieł. Melodia falowała nad budzącym się do życia lasem, na przemian przybliżając się i oddalając. Lerka śpiewała coraz spokojniej, jej trele wydłużyły się tkliwie i kojąco, przerywane coraz dłuższymi pauzami, aż w końcu jej głos zamienił się w pojedyncze, przeciągłe ćwierkanie. Ostatni świergot zawibrował delikatnie i ucichł.
+Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej.
+
+Lerka śpiewała coraz ciszej, z coraz dłuższymi pauzami, aż jej głos zamienił się w pojedyncze, przeciągłe ćwierkanie. Ostatni świergot zawibrował delikatnie i ucichł.
 
 Poczułem, jak jej ramię nagle drgnęło pod moją dłonią. Spojrzałem na nią pytająco.
 
@@ -332,9 +334,11 @@ Ubita ziemia była sucha i spękana, pokryta smugami krwi, która tu i ówdzie z
 
 Po prawej stronie zobaczyłem szeroką wyrwę w płocie. Wyłamane sztachety, wyprute żerdzie, do których przykleiły się ciemne nitki sierści. Zajrzałem do środka. Grządki kapusty były rozorane i stratowane. Ruszyłem na przełaj przez zagrodę, idąc po rozkopanych redlinach.
 
-Przeszedłem po leżącej płasko, wyrwanej z zawiasów furtce. Krew ciemniała w słojach drewna, kleiła się do butów. Rozejrzałem się po podwórzu, przyglądając się rozbryzgom na klepisku. Szeroka smuga prowadziła do rozerwanej leszczynowej plecionki w opłotku. Za nią zobaczyłem rozbity dach przewróconego kurnika.
+Przeszedłem po leżącej płasko, wyrwanej z zawiasów furtce. Krew ciemniała w słojach drewna, kleiła się do butów. Szeroka smuga na klepisku prowadziła do rozerwanej leszczynowej plecionki w opłotku. Za nią zobaczyłem rozbity dach przewróconego kurnika.
 
-Patrzyłem pod nogi na pokrytą ptasimi odchodami ziemię, szukając plam krwi, do których kleiło się fruwające wszędzie pierze. Wyminąłem kobietę, która klęczała, trzymając skrzeczącą rozpaczliwie, szarpiącą się kurę. Doszedłem do zapadniętej pryzmy kompostu wymieszanego z gnojówką. Przez swojski, kwaśny zapach przebijał się mdlący odór juchy tarwosa. Przekroczyłem wyłamane drzwiczki do chlewika. Wyrwa w ogrodzeniu prowadziła na kolejne podwórze.
+Patrzyłem pod nogi na pokrytą ptasimi odchodami ziemię, szukając plam krwi, do których kleiło się fruwające wszędzie pierze. Wyminąłem kobietę, która klęczała, trzymając skrzeczącą rozpaczliwie, szarpiącą się kurę.
+
+Doszedłem do zapadniętej pryzmy kompostu wymieszanego z gnojówką. Przez swojski, kwaśny zapach przebijał się mdlący odór juchy tarwosa. Wyrwa w ogrodzeniu prowadziła na kolejne podwórze.
 
 Szerokie rozbryzgi krwi wyraźnie się odznaczały na rozsypanych szczapach. Szedłem dalej po śladach, które prowadziły między stosami polan, aż za drewutnię. I tam go znalazłem.
 
@@ -422,7 +426,7 @@ Zaraz obok na ziemi siedzi Mikel. Na jego kolanach strzaskana viella, popękane 
 
 Ściągam bębenek.
 
-Głowa leży kilka kroków dalej. Peire. Kładę ją obok ciała.
+Głowa leży kilka kroków dalej. Kładę ją obok ciała.
 
 ***
 
@@ -492,7 +496,7 @@ Oddala się.
 
 ***
 
-Podchodzi Mirella. Głaszcze mnie po policzku. Przytula się, ściska mocno. Długo. Bardzo długo. Chcę odwzajemnić uścisk. Stoję bez ruchu.
+Podchodzi Mirella. Głaszcze mnie po policzku. Przytula się, ściska mocno. Długo. Chcę odwzajemnić uścisk. Stoję bez ruchu.
 
 – Zajmę się Janą – szepcze mi do ucha.
 
@@ -524,8 +528,6 @@ Nagle coś głucho stuknęło, aż zadrżało stylisko. Zacząłem pomału zbier
 
 Chwyciłem łom, wsunąłem pod krawędź. Naparłem biodrami. Kamień ani drgnął.
 
-Zaparłem się nogami, napiąłem, ciągnąłem łom z całej siły. Nagle glina puściła, łom zgrzytnął o kamień, wyślizgnął się z gniazda. Zachwiałem się, oparłem o ścianę grobu.
-
 Wziąłem rydel, zacząłem podkopywać głębiej. Odłożyłem rydel, chwyciłem łom, wbiłem głęboko pod kamieniem, poruszałem nim gwałtownie, żeby rozkruszyć glinę, zacząłem ją wybierać od spodu. Wsunąłem łom głęboko, zaparłem nogami o ścianę, zacząłem ciągnąć.
 
 Kamień ani drgnął.
@@ -542,7 +544,7 @@ Zaparłem się plecami, ciągnąłem rękami, pchałem nogami, unosiłem kamień
 
 Osunąłem się plecami po ścianie grobu. Ręce i nogi dygotały, nie byłem w stanie się podnieść. Zamknąłem oczy i tak leżałem, ciężko dysząc.
 
-Ciało Raimona rozorane głębokimi szramami. Ciało Falka z ziejącą dziurą w klatce piersiowej. Ciało Peire z odrąbaną głową. Ciało młodziutkiej Leny. Ciało Kaspara z szyją przerżniętą do połowy.
+Ciało Raimona rozorane pazurami. Ciało Falka z ziejącą dziurą w klatce piersiowej. Ciało Peire z odrąbaną głową. Ciało młodziutkiej Leny. Ciało Kaspara z szyją przerżniętą do połowy.
 
 Ciało ojca przygwożdżone toporem. Jego twarz zalana plugawą krwią.
 
