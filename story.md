@@ -1,5 +1,3 @@
-# Święty czas, święta ziemia
-
 Zapowiadał się skwarny dzień. Szedłem z konwią do studni, kiedy minęła mnie Jana – obładowana gałązkami brzozy i lipy, z naręczem polnych kwiatów przyciśniętym do piersi.
 
 – Jonas! Muszę lecieć do karczmy, Arnaut powiedział, że mam przyozdobić północną bramę! – wyrzuciła jednym tchem. – Przyjdziesz później?
@@ -29,7 +27,6 @@ Palce natknęły się na leżący na ziemi liść. Wyciągnąłem go i obejrzał
 Obejrzałem dokładnie cały krzak. Choroba nie przeniosła się jeszcze w górne partie, ale trzeba było działać szybko. Wstałem i poszedłem po wiklinowy kosz, rozglądając się przy okazji. Przesuwałem wzrokiem po krzewach czarnych róż rosnących w długich, niskich pasach, wijących się od bramy świątynnej, okrążających stary grobowiec i biegnących aż do kwatery topielców. Spojrzałem w niebo. Słońce nieubłaganie pięło się w górę.
 
 Wyciągnąłem nóż. Z twarzą przy samej ziemi zacząłem wycinać pędy u samej nasady i wrzucać je do kosza. Krzew powoli się przerzedzał, wpuszczając słońce w gęstwinę.
-
 Krzew zrobił się na tyle przewiewny, że rosa nie powinna się już gromadzić. Obejrzałem wszystko jeszcze raz, łącznie z pąkami, które w jaskrawym świetle nabrały koloru zaschniętej krwi. Płatki były zdrowe, grube i mięsiste. Motyczką spulchniłem płytko glebę wokół korzeni. Ostrożnie przechyliłem konew, uważając, by nie zamoczyć liści, i patrzyłem, jak ziemia pije wodę – akurat tyle, aby palące słońce nie wysuszyło jej na wiór; nie więcej.
 
 Wziąłem kosz i podszedłem do kolejnego krzewu.
@@ -66,14 +63,13 @@ Pokiwałem głową. Pracowaliśmy dalej w milczeniu.
 
 ***
 
-Nagłe ukłucie ostrego bólu wyrwało mnie ze wspomnień. Ostrożnie wyjąłem kolec, który wbił mi się w dłoń. Czarne róże mają kolce niczym kocie pazury. Otarłem pot z czoła. Słońce chyliło się ku zachodowi, ale wciąż grzało niemiłosiernie. Wyprostowałem się i rozejrzałem. Zostało jeszcze kilkanaście krzewów. Rozciągnąłem ramiona i zabrałem się z powrotem do pracy.
+Ukłucie ostrego bólu wyrwało mnie ze wspomnień. Ostrożnie wyjąłem kolec, który wbił mi się w dłoń. Czarne róże mają kolce niczym kocie pazury. Otarłem pot z czoła. Słońce chyliło się ku zachodowi, ale wciąż grzało niemiłosiernie. Wyprostowałem się i rozejrzałem. Zostało jeszcze kilkanaście krzewów. Rozciągnąłem ramiona i zabrałem się z powrotem do pracy.
 
 Kiedy skończyłem, wziąłem kosz i ruszyłem na podwórze, skąd cały czas dobiegał odgłos ostrzenia narzędzi. Ujrzałem ojca pochylonego nad rydlem – nawet nie podniósł na mnie wzroku. W skupieniu prowadził kamień po krawędzi. W pewnym momencie przerwał, odłożył osełkę i sprawdził ostrze paznokciem. Obrócił rydel, chwycił osełkę i zaczął miarowo przesuwać ją po drugiej stronie.
 
 – Czerń zaczęła chwytać – zameldowałem. – Wyciąłem wszystko, pójdę spalić.
 
 Ledwie skinął głową, nie przerywając pracy. Poszedłem za szopę, do paleniska otoczonego dużymi, poczerniałymi kamieniami. Odgarnąłem popiół stopą, odsłaniając suchą ziemię w dole, i ułożyłem rozpałkę. Uderzałem krzesiwem o kamień, patrząc, jak deszcz iskier sypie się na suchy mech, aż ten zatlił się cichym syknięciem. Rozdmuchałem ogień – rozniósł się błyskawicznie, aż poczułem żar bijący mi w twarz.
-
 Dokładałem kolejne pędy, układając je na krzyż, warstwami, żeby ogień dobrze je objął. Łodygi skręcały się z trzaskiem, a pokryte czarnymi plamami liście zwijały się, uwalniając kłęby sinego dymu.
 
 Kiedy stos osiadł, rozgarnąłem go kijem. Dopilnowałem, żeby wszystko dopaliło się do końca. Nabrałem do czerpaka wodę z beczki stojącej w cieniu szopy i polałem na popiół. Zasyczało, buchnęło ciężkim obłokiem pary.
@@ -164,7 +160,7 @@ Uśmiechnęła się, przekrzywiając głowę.
 
 Ruszyła pierwsza. Po kilku krokach nagle skręciła w stronę lasu.
 
-– Nie idziemy do wsi? – zapytałem.
+– Nie idziemy do wsi?
 
 – Jest jeszcze jeden warunek – odparła. – Każda Córka Danu musi go spełnić.
 
@@ -264,7 +260,7 @@ Pojedynczy trzask, jakby coś ciężkiego uderzyło w pień drzewa. Nasze ciała
 
 Kolejny. Głośniej. Bliżej.
 
-Nagle cały las zaszumiał gwałtownie od trzepotu ptaków zrywających się do lotu, zewsząd rozlegały się ich krótkie, ostrzegawcze gwizdy.
+Cały las zaszumiał gwałtownie od trzepotu ptaków zrywających się do lotu, zewsząd rozlegały się ich krótkie, ostrzegawcze gwizdy.
 
 Cisza.
 
@@ -466,9 +462,9 @@ Wstaje. Ociera ręce o fartuch.
 
 Zagajnik za wsią.
 
-Kaspar trzyma Mirellę za włosy. Gerald uderza pięścią w brzuch. Duran mówi coś do niej.
+Kaspar trzyma Mirellę za włosy. Duran uderza pięścią w brzuch.
 
-Gerald uderza plecami o drzewo. Osuwa się, łapiąc powietrze. Duran pada na ziemię. Powalony jednym ciosem. Kaspar ucieka.
+Jeden cios. Duran leży na ziemi. Kaspar ucieka.
 
 ***
 
@@ -486,7 +482,7 @@ Nie wiem, co ma na myśli. Powoli kiwam głową.
 
 Czeka. Ponownie kiwam głową.
 
-– Dobrze. Czy jesteś gotowy, by pełnić posługę Strażnika Umarłych?
+– Dobrze. Czy jesteś gotowy, by pełnić posługę strażnika umarłych?
 
 Nie, mówi głos w mojej głowie. Po raz trzeci kiwam głową.
 
