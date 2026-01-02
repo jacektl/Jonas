@@ -12,7 +12,7 @@ Była za młoda, żeby to zrozumieć. Nasz ojciec miał rację: nikt nie lubi, k
 
 Zerknęła w tę samą stronę i mrugnęła do mnie porozumiewawczo. – Mirella będzie.
 
-Też mi nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Nie miałem co się tam pokazywać. Zawsze mnie unikali. A kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Zacząłem wtedy odprowadzać Mirellę, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
+Też mi nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Nie miałem co się tam pokazywać. Zawsze mnie unikali. A kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Odprowadzałem wtedy Mirellę, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
 
 – Jej naprawdę zależy. – Nie dawała za wygraną. – Nie bądź taki… Powiedz coś w końcu.
 
@@ -26,9 +26,9 @@ Uklęknąłem. Owiał mnie gorzki, mulisty zapach kwiatów. Wymacałem korzenie,
 
 Palce natknęły się na leżący na ziemi liść. Wyciągnąłem go i obejrzałem w słońcu. Czarne plamy.
 
-Obejrzałem dokładnie cały krzak. Choroba nie przeniosła się jeszcze w górne partie, ale trzeba było działać szybko. Wstałem i poszedłem po wiklinowy kosz, rozglądając się przy okazji po Ogrodzie. Przesuwałem powoli wzrokiem po krzewach czarnych róż rosnących w długich, niskich pasach, wijących się od bramy świątynnej, okrążających stary grobowiec i biegnących aż do kwatery topielców. Spojrzałem w niebo. Słońce nieubłaganie pięło się w górę.
+Obejrzałem dokładnie cały krzak. Choroba nie przeniosła się jeszcze w górne partie, ale trzeba było działać szybko. Wstałem i poszedłem po wiklinowy kosz, rozglądając się przy okazji po Ogrodzie. Przesuwałem wzrokiem po krzewach czarnych róż rosnących w długich, niskich pasach, wijących się od bramy świątynnej, okrążających stary grobowiec i biegnących aż do kwatery topielców. Spojrzałem w niebo. Słońce nieubłaganie pięło się w górę.
 
-Wyciągnąłem nóż. Z twarzą przy samej ziemi zacząłem wycinać pędy u samej nasady i wrzucać je do kosza. Krzew powoli się przerzedzał, wpuszczając słońce w gęstwinę. Obcinałem chore liście i odkładałem do kosza.
+Wyciągnąłem nóż. Z twarzą przy samej ziemi zacząłem wycinać pędy u samej nasady i wrzucać je do kosza. Krzew powoli się przerzedzał, wpuszczając słońce w gęstwinę.
 
 Krzew zrobił się na tyle przewiewny, że rosa nie powinna się już gromadzić. Obejrzałem wszystko jeszcze raz, łącznie z pąkami, które w jaskrawym świetle nabrały koloru zaschniętej krwi. Płatki były zdrowe, grube i mięsiste. Motyczką spulchniłem płytko glebę wokół korzeni. Ostrożnie przechyliłem konew, uważając, by nie zamoczyć liści, i patrzyłem, jak ziemia pije wodę – akurat tyle, aby palące słońce nie wysuszyło jej na wiór; nie więcej.
 
@@ -38,7 +38,7 @@ Wziąłem kosz i podszedłem do kolejnego krzewu.
 
 W buczynie unosił się zapach mokrego mchu i błota.
 
-Chwyciłem rydel i wbiłem go w ziemię wokół wystającego korzenia. Kopałem szerokim łukiem, odgarniając warstwy gliniastej, nasączonej wodą gleby. Ziemia ustępowała z oporem, pachniała pleśnią i mokrymi liśćmi. Uklęknąłem i zacząłem odgarniać ją rękami, odsłaniając powoli przegniły, czarny korzeń. Przesunąłem po nim palcami. Był miękki i śliski.
+Chwyciłem rydel i wbiłem go w ziemię wokół wystającego korzenia. Kopałem szerokim łukiem, odgarniając warstwy gliniastej, nasączonej wodą gleby. Ziemia ustępowała z oporem, pachniała pleśnią i mokrymi liśćmi. Uklęknąłem i odgarniałem ją rękami, odsłaniając przegniły, czarny korzeń. Przesunąłem po nim palcami. Był miękki i śliski.
 
 Chwyciłem nóż i ostrożnie wsunąłem go w szczelinę, delikatnie podważając. Fragment korzenia oderwał się z mokrym mlaśnięciem. Podałem go Mirelli. Nacięła korzeń wzdłuż nożykiem i zaczęła obierać jak cebulę, odsłaniając tłuste, grube na cal, kremowobiałe robaki. Drewnianą łyżką o szerokim brzegu zgarniała je do dzieży wyścielonej liśćmi piołunu.
 
@@ -66,15 +66,15 @@ Pokiwałem głową. Pracowaliśmy dalej w milczeniu.
 
 ***
 
-Nagłe ukłucie ostrego bólu wyrwało mnie ze wspomnień. Ostrożnie wyjąłem kolec, który wbił mi się w dłoń. Czarne róże mają kolce niczym kocie pazury. Otarłem pot z czoła. Słońce chyliło się powoli ku zachodowi, ale wciąż grzało niemiłosiernie. Wyprostowałem się i rozejrzałem. Zostało jeszcze kilkanaście krzewów. Rozciągnąłem ramiona i zabrałem się z powrotem do pracy.
+Nagłe ukłucie ostrego bólu wyrwało mnie ze wspomnień. Ostrożnie wyjąłem kolec, który wbił mi się w dłoń. Czarne róże mają kolce niczym kocie pazury. Otarłem pot z czoła. Słońce chyliło się ku zachodowi, ale wciąż grzało niemiłosiernie. Wyprostowałem się i rozejrzałem. Zostało jeszcze kilkanaście krzewów. Rozciągnąłem ramiona i zabrałem się z powrotem do pracy.
 
-Kiedy skończyłem, wziąłem kosz i ruszyłem na podwórze, skąd cały czas dobiegał odgłos ostrzenia narzędzi. Ujrzałem ojca pochylonego nad rydlem – nawet nie podniósł na mnie wzroku. W skupieniu prowadził kamień po krawędzi. W pewnym momencie przerwał, odłożył osełkę i sprawdził ostrze paznokciem. Obrócił rydel, chwycił osełkę i znów zaczął miarowo przesuwać ją po ostrzu.
+Kiedy skończyłem, wziąłem kosz i ruszyłem na podwórze, skąd cały czas dobiegał odgłos ostrzenia narzędzi. Ujrzałem ojca pochylonego nad rydlem – nawet nie podniósł na mnie wzroku. W skupieniu prowadził kamień po krawędzi. W pewnym momencie przerwał, odłożył osełkę i sprawdził ostrze paznokciem. Obrócił rydel, chwycił osełkę i zaczął miarowo przesuwać ją po drugiej stronie.
 
 – Czerń zaczęła chwytać – zameldowałem. – Wyciąłem wszystko, pójdę spalić.
 
 Ledwie skinął głową, nie przerywając pracy. Poszedłem za szopę, do paleniska otoczonego dużymi, poczerniałymi kamieniami. Odgarnąłem popiół stopą, odsłaniając suchą ziemię w dole, i ułożyłem rozpałkę. Uderzałem krzesiwem o kamień, patrząc, jak deszcz iskier sypie się na suchy mech, aż ten zatlił się cichym syknięciem. Rozdmuchałem ogień – rozniósł się błyskawicznie, aż poczułem żar bijący mi w twarz.
 
-Dokładałem kolejne pędy, układając je na krzyż, warstwami, żeby ogień dobrze je objął. Łodygi skręcały się z trzaskiem, a pokryte czarnymi plamami liście zaczęły się zwijać, uwalniając kłęby sinego dymu.
+Dokładałem kolejne pędy, układając je na krzyż, warstwami, żeby ogień dobrze je objął. Łodygi skręcały się z trzaskiem, a pokryte czarnymi plamami liście zwijały się, uwalniając kłęby sinego dymu.
 
 Kiedy stos osiadł, rozgarnąłem go kijem. Dopilnowałem, żeby wszystko dopaliło się do końca. Nabrałem do czerpaka wodę z beczki stojącej w cieniu szopy i polałem na popiół. Zasyczało, buchnęło ciężkim obłokiem pary.
 
@@ -82,9 +82,9 @@ Zdałem sobie sprawę, że jestem cały zlany potem, a ciało mam rozpalone po c
 
 Moje ciało zapłonęło piekącym bólem. Woda była przeszywająco lodowata. Nie mogłem złapać tchu; szczęki zacisnęły się jak imadło. Przez chwilę nie czułem nic oprócz wszechogarniającego, przeraźliwego zimna. A zaraz potem przyszła niesamowita ulga, jakby całe napięcie odpłynęło z mojego ciała. Jakbym wyrwał się z głębokiego snu.
 
-Wtedy doszedł do mnie ciągnący ze wsi odgłos dzwonów. Zaczęły się obrzędy.
+Doszedł do mnie ciągnący ze wsi odgłos dzwonów. Zaczęły się obrzędy.
 
-I nagle przyszło mi do głowy, że chcę tam iść.
+Przyszło mi do głowy, że chcę tam iść.
 
 Ubrałem się i podszedłem do ojca. Wciąż ostrzył rydel.
 
@@ -240,7 +240,7 @@ Przełknąłem ślinę. To w ogóle nie był żart.
 
 Powoli skinąłem głową.
 
-Jej twarz rozpromieniła się w szerokim uśmiechu. Zerwała wianek z głowy, zakręciła się w miejscu i cisnęła nim z całej siły – patrzyłem, jak wiruje w powietrzu i znika między drzewami.
+Jej twarz rozpromieniła się w szerokim uśmiechu. Zerwała wianek z głowy, zakręciła się w miejscu i cisnęła nim z całej siły. Wianek poszybował, wirując w powietrzu, i zniknął między drzewami.
 
 Patrzyliśmy na siebie, oddychając głęboko, w tym samym rytmie.
 
@@ -248,7 +248,7 @@ Zaczęła rozplatać warkocz.
 
 ***
 
-Gdy wracaliśmy, w sosnowym borze powoli szarzał świt. Tuż przed nami, wprost z igliwia, wzbiła się w powietrze lerka.
+Gdy wracaliśmy, w sosnowym borze zaczynał szarzeć świt. Tuż przed nami, wprost z igliwia, wzbiła się w powietrze lerka.
 
 Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Wzleciała wysoko i zaczęła krążyć między koronami sosen, wydając z siebie kaskady dźwięków niosące się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała łagodnie do niskich, miękkich tonów, żeby znowu wybuchnąć wartkim potokiem.
 
@@ -304,7 +304,7 @@ Wiedziałem, co to jest. Z opowieści ojca. Które słyszał od swojego ojca.
 
 Podszedłem do leżącego cielska. Uderzył mnie dławiący smród, aż cofnąłem się o krok, wstrzymując oddech.
 
-Leżał na boku, zapadnięty w igliwie, cały umazany krwią. Był ogromny. Powoli wodziłem wzrokiem po jego ciele.
+Leżał na boku, zapadnięty w igliwie, cały umazany krwią. Był ogromny. Wodziłem wzrokiem po jego ciele.
 
 Przyjrzałem się nienaturalnie podwiniętej nodze. Powyżej szerokiej, rozszczepionej racicy sierść była zlepiona czarną, zaschniętą krwią. Zauważyłem głęboką ranę na pęcinie. Ścięgno było przecięte równo, do kości.
 
@@ -358,7 +358,7 @@ Zaczęła krzyczeć.
 
 ***
 
-Wózek. Kilka pozbijanych desek, dwa koła, dwa uchwyty. Pcham go przed sobą.
+Wózek. Kilka pozbijanych desek, dwa koła, dwa uchwyty. Pcham.
 
 ***
 
@@ -560,13 +560,13 @@ Moje ciało.
 
 Otworzyłem oczy. Moje ciało drżało na zimnej glinie. Wygramoliłem się z grobu. Leżałem na plecach, wdychając zapach świeżo rozkopanej ziemi, a słońce ogrzewało mi twarz.
 
-Stanąłem powoli na drżących nogach. Poszedłem do świątyni. Chwyciłem dłońmi za całun i przeciągnąłem ojca z katafalku na wózek. Pomału nadjechałem wózkiem nad krawędź grobu. Podklinowałem koła.
+Stanąłem na drżących nogach. Poszedłem do świątyni. Chwyciłem dłońmi za całun i przeciągnąłem ojca z katafalku na wózek. Pomału nadjechałem wózkiem nad krawędź grobu. Podklinowałem koła.
 
 Wsunąłem do grobu deskę, oparłem z jednej strony o dno, z drugiej o brzeg. Przechyliłem wózek, trzymając za całun, powoli zsunąłem ciało na dno grobu. Ostrożnie wysunąłem spod niego deskę.
 
-Odstawiłem wózek. Chwyciłem łopatę. Była w doskonałym stanie, osadzona na zupełnie nowym, jesionowym stylisku. Drewno było idealnie wygładzone i pokryte bejcą.
+Odstawiłem wózek. Chwyciłem łopatę. Była osadzona na nowym, jesionowym stylisku. Drewno było wygładzone i pokryte bejcą.
 
-Chwiejąc się, wbiłem łopatę w wał pokruszonej gliny i zacząłem zasypywać grób. Całun powoli znikał przykryty warstwą szarych, lepkich grudek. Marzyłem już tylko o tym, żeby to się skończyło. Żeby w końcu ziemia zamknęła się nad nim.
+Chwiejąc się, wbiłem łopatę w wał pokruszonej gliny i zacząłem zasypywać grób. Całun znikał pod warstwą szarych, lepkich grudek. Marzyłem już tylko o tym, żeby to się skończyło. Żeby w końcu ziemia zamknęła się nad nim.
 
 Usypałem pierwszą warstwę, na wysokość stopy. Zabrałem się za jej ubijanie.
 
