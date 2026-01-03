@@ -28,7 +28,7 @@ Obejrzałem dokładnie cały krzak. Choroba nie przeniosła się jeszcze w górn
 
 Wyciągnąłem nóż. Z twarzą przy samej ziemi zacząłem wycinać pędy u samej nasady i wrzucać je do kosza. Krzew powoli się przerzedzał, wpuszczając słońce w gęstwinę.
 
-Krzew zrobił się na tyle przewiewny, że rosa nie powinna się już gromadzić. Obejrzałem wszystko jeszcze raz, łącznie  z pąkami, które w jaskrawym świetle nabrały koloru zaschniętej krwi. Płatki były zdrowe, grube i mięsiste. Motyczką spulchniłem płytko glebę wokół korzeni. Ostrożnie przechyliłem konew, uważając, by nie zamoczyć liści, i patrzyłem, jak woda wsiąka w ziemię – akurat tyle, aby palące słońce nie wysuszyło jej na wiór; nie więcej.
+Po pewnym czasie uznałem, że rosa nie powinna się już gromadzić. Obejrzałem wszystko jeszcze raz, łącznie  z pąkami, które w jaskrawym świetle nabrały koloru zaschniętej krwi. Płatki były zdrowe, grube i mięsiste. Motyczką spulchniłem płytko glebę wokół korzeni. Ostrożnie przechyliłem konew, uważając, by nie zamoczyć liści, i patrzyłem, jak woda wsiąka w ziemię – akurat tyle, aby palące słońce nie wysuszyło jej na wiór; nie więcej.
 
 Wziąłem kosz i podszedłem do kolejnego krzewu.
 
