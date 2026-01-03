@@ -10,7 +10,7 @@ Była za młoda, żeby to zrozumieć. To są sprawy żywych, my służymy umarł
 
 Zerknęła w tę samą stronę i mrugnęła do mnie porozumiewawczo. – Mirella będzie.
 
-Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Nie miałem co się tam pokazywać. Zawsze mnie unikali. A kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Odprowadzałem wtedy Mirellę, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
+To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Nie miałem co się tam pokazywać. Zawsze mnie unikali. A kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Odprowadzałem wtedy Mirellę, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
 
 – Jej naprawdę zależy. – Nie dawała za wygraną. – Nie bądź taki… Powiedz coś w końcu.
 
@@ -27,7 +27,8 @@ Palce natknęły się na leżący na ziemi liść. Wyciągnąłem go i obejrzał
 Obejrzałem dokładnie cały krzak. Choroba nie przeniosła się jeszcze w górne partie, ale trzeba było działać szybko. Wstałem i poszedłem po wiklinowy kosz, rozglądając się przy okazji. Przesuwałem wzrokiem po krzewach czarnych róż rosnących w długich, niskich pasach, wijących się od bramy świątynnej, okrążających stary grobowiec i biegnących aż do kwatery topielców. Spojrzałem w niebo. Słońce nieubłaganie pięło się w górę.
 
 Wyciągnąłem nóż. Z twarzą przy samej ziemi zacząłem wycinać pędy u samej nasady i wrzucać je do kosza. Krzew powoli się przerzedzał, wpuszczając słońce w gęstwinę.
-Krzew zrobił się na tyle przewiewny, że rosa nie powinna się już gromadzić. Obejrzałem wszystko jeszcze raz, łącznie z pąkami, które w jaskrawym świetle nabrały koloru zaschniętej krwi. Płatki były zdrowe, grube i mięsiste. Motyczką spulchniłem płytko glebę wokół korzeni. Ostrożnie przechyliłem konew, uważając, by nie zamoczyć liści, i patrzyłem, jak ziemia pije wodę – akurat tyle, aby palące słońce nie wysuszyło jej na wiór; nie więcej.
+
+Krzew zrobił się na tyle przewiewny, że rosa nie powinna się już gromadzić. Obejrzałem wszystko jeszcze raz, łącznie  z pąkami, które w jaskrawym świetle nabrały koloru zaschniętej krwi. Płatki były zdrowe, grube i mięsiste. Motyczką spulchniłem płytko glebę wokół korzeni. Ostrożnie przechyliłem konew, uważając, by nie zamoczyć liści, i patrzyłem, jak woda wsiąka w ziemię – akurat tyle, aby palące słońce nie wysuszyło jej na wiór; nie więcej.
 
 Wziąłem kosz i podszedłem do kolejnego krzewu.
 
@@ -53,7 +54,7 @@ Zastygła nagle. Rzuciła na mnie czujne spojrzenie.
 
 – I nikomu ani słowa, bo mnie spalą na stosie.
 
-Nie miałem pojęcia, czy żartuje, czy mówi poważnie. Zamilkłem. Odgarniałem ziemię, żeby odsłonić boczne odgałęzienia.
+Zamilkłem. Odgarniałem ziemię, żeby odsłonić boczne odgałęzienia.
 
 – Kiedy się znowu zobaczymy?
 
@@ -70,6 +71,7 @@ Kiedy skończyłem, wziąłem kosz i ruszyłem na podwórze, skąd cały czas do
 – Czerń zaczęła chwytać – zameldowałem. – Wyciąłem wszystko, pójdę spalić.
 
 Ledwie skinął głową, nie przerywając pracy. Poszedłem za szopę, do paleniska otoczonego dużymi, poczerniałymi kamieniami. Odgarnąłem popiół stopą, odsłaniając suchą ziemię w dole, i ułożyłem rozpałkę. Uderzałem krzesiwem o kamień, patrząc, jak deszcz iskier sypie się na suchy mech, aż ten zatlił się cichym syknięciem. Rozdmuchałem ogień – rozniósł się błyskawicznie, aż poczułem żar bijący mi w twarz.
+
 Dokładałem kolejne pędy, układając je na krzyż, warstwami, żeby ogień dobrze je objął. Łodygi skręcały się z trzaskiem, a pokryte czarnymi plamami liście zwijały się, uwalniając kłęby sinego dymu.
 
 Kiedy stos osiadł, rozgarnąłem go kijem. Dopilnowałem, żeby wszystko dopaliło się do końca. Nabrałem do czerpaka wodę z beczki stojącej w cieniu szopy i polałem na popiół. Zasyczało, buchnęło ciężkim obłokiem pary.
@@ -118,7 +120,7 @@ Spojrzała na mnie. Zrobiła głęboki wdech.
 
 I nagle zaczęła skakać na palcach.
 
-– Udało się! Udało się! Udało się!
+– Udało się! Udało się!
 
 Patrzyłem na nią oniemiały. Podbiegła kilka kroków, zakręciła się w kółko, po czym odwróciła i zaczęła mówić, idąc tyłem:
 
@@ -534,7 +536,7 @@ Kamień ani drgnął.
 
 Wybrałem glinę głęboko po obu stronach. Z całej siły wbiłem łom pod kamień z drugiej strony, pod innym kątem. Naparłem z całej siły. Łom ześlizgnął się gwałtownie i uderzył mnie w piszczel. Jęknąłem z bólu.
 
-Waliłem łomem wściekle, na oślep, w kamień, w ściany, gdzie popadnie, bryłki gliny uderzały mnie w twarz. Krzyczałem. Cisnąłem łomem o kamień, odbił się z metalicznym brzękiem i upadł na ziemię. Wsunąłem dłonie pod kamień, przykucnąłem, spiąłem brzuch, napiąłem plecy do granic możliwości, zacząłem ciągnąć z nóg i bioder. Bez przerwy wrzeszcząc ile sił w płucach.
+Waliłem łomem na oślep, w kamień, w ściany, bryłki gliny uderzały mnie w twarz. Krzyczałem. Cisnąłem łomem o kamień, odbił się z metalicznym brzękiem i upadł na ziemię. Wsunąłem dłonie pod kamień, przykucnąłem, spiąłem brzuch, napiąłem plecy do granic możliwości, zacząłem ciągnąć z nóg i bioder. Bez przerwy wrzeszcząc ile sił w płucach.
 
 Kamień drgnął.
 
