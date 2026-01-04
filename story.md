@@ -8,7 +8,9 @@ Wzruszyłem ramionami. Spojrzałem wymownie w stronę podwórza, skąd dobiegał
 
 Była za młoda, żeby to zrozumieć. To są sprawy żywych, my służymy umarłym – tak zawsze mówił nasz ojciec, tonem, jakby chciał mnie pocieszyć.
 
-Zerknęła w tę samą stronę i mrugnęła do mnie porozumiewawczo. – Mirella będzie.
+Zerknęła w tę samą stronę i mrugnęła do mnie porozumiewawczo:
+
+– Mirella będzie.
 
 To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Nie miałem co się tam pokazywać. Zawsze mnie unikali. A kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Odprowadzałem wtedy Mirellę, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
 
@@ -202,7 +204,7 @@ Położyłem dłoń na chłodnej, omszałej ścianie.
 
 Przesuwając palcami, wyczułem pod mchem ledwo widoczne, regularne wyżłobienia.
 
-– A wcześniej Sidhe. To ich symbole.
+– A wcześniej sidhe. To ich symbole.
 
 Rozejrzałem się wokół. Widziałem niezwykle ostro; rozróżniałem pojedyncze źdźbła w jaskrawo zielonej trawie. Wzrok powędrował ku koronom drzew. Nad nimi niebo jarzyło się intensywną czerwienią, która płynnie przechodziła w złoto dojrzałej pszenicy, by wyżej stężeć w głęboki, ciemny błękit. Na jego tle zamigotały pierwsze gwiazdy.
 
@@ -248,7 +250,7 @@ Zaczęła rozplatać warkocz.
 
 Gdy wracaliśmy, w sosnowym borze zaczynał szarzeć świt. Tuż przed nami, wprost z igliwia, wzbiła się w powietrze lerka.
 
-Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Zaczęła krążyć między koronami sosen, jej śpiew niósł się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała do niskich, miękkich tonów.
+Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Zaczęła krążyć między koronami sosen, a jej śpiew niósł się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała do niskich, miękkich tonów.
 
 Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej.
 
@@ -390,7 +392,7 @@ Stoję nad nim. Stopy po obu stronach. Topór tkwi głęboko w piersi. Trzonek s
 
 Jana szarpie mnie za rękaw. Cała się trzęsie. Usta szeroko otwarte.
 
-Topór nie chce wyjść. Poruszam trzonkiem w bok. Raz w jedną stronę, raz w drugą. Ciało rusza się razem z nim. Głowa się kołysze na boki.
+Topór nie chce wyjść. Poruszam trzonkiem w bok. Raz w jedną stronę, raz w drugą. Ciało rusza się razem z nim. Głowa kołysze się na boki.
 
 Patrzę, jak Jana bije mnie pięściami. W ramiona. W plecy.
 
@@ -530,7 +532,7 @@ Nagle coś głucho stuknęło, aż zadrżało stylisko. Zacząłem pomału zbier
 
 Chwyciłem łom, wsunąłem pod krawędź. Naparłem biodrami. Kamień ani drgnął.
 
-Wziąłem rydel, zacząłem podkopywać głębiej. Odłożyłem rydel, chwyciłem łom, wbiłem głęboko pod kamieniem, poruszałem nim gwałtownie, żeby rozkruszyć glinę, zacząłem ją wybierać od spodu. Wsunąłem łom głęboko, zaparłem nogami o ścianę, zacząłem ciągnąć.
+Wziąłem rydel, zacząłem podkopywać głębiej. Odłożyłem rydel, chwyciłem łom, wbiłem głęboko pod kamieniem, poruszałem nim gwałtownie, żeby rozkruszyć glinę, zacząłem wybierać ją od spodu. Wsunąłem łom głęboko, zaparłem nogami o ścianę, zacząłem ciągnąć.
 
 Kamień ani drgnął.
 
