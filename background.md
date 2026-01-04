@@ -49,6 +49,14 @@ Jakob miał żonę. Po jej śmierci zgorzkniał, stał się oschły i ponury.
 Rola Strażnika Umarłych nie wyklucza założenia rodziny. Wręcz przeciwnie, przedłużenie rodu i przekazanie urzędu męskiemu potomkowi jest istotne.
 Wniosek: istnieje potencjalna szczęśliwa przyszłość: Jonas i Mirella mogą wspólnie wychowywać dziecko.
 
+# Plan wioski
+Wioska jest ufortyfikowana, otoczona palisadą.
+Do wioski prowadzą cztery bramy z czterech stron świata.
+Północna brama jest przy głównym szlaku, dlatego jest tam karczma z zajazdem.
+Południowa brama prowadzi na pola uprawne.
+Wschodnia brama prowadzi do głównego szlaku biegnącego przez las. Na wschód od wioski jest chata guślarki ukryta w lesie.
+Zachodnia brama prowadzi do świątyni i cmentarza, przy którym jest dom Jonasa, Jany i ich ojca.
+
 # Atak na wioskę
 Tarwos i garany to są pół-ludzie, pół-zwierzęta. Częściowo rozumne. Potrafią walczyć zdobyczną bronią a także sami wytwarzać prymitywne włócznie.
 To jest niebezpieczny świat, wioska jest narażona na ataki. Dlatego też jest ufortyfikowana, otoczona palisadą. Wszystkie cztery bramy są strzeżone i zamykane na noc.
