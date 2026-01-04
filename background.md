@@ -10,6 +10,28 @@ Mirella ma jakieś 18 lat. Jana i Mirella rozmawiają wcześniej o Jonasie.
 Mirella nie wspomina Janie o swoim planie inicjacji Jonasa. Jana coś wyczuwa, ale nie wie, o co chodzi.
 Jana zna Mirellę i zna Jonasa. Widzi ich wzajemną fascynację i zdaje sobie sprawę, jak łatwo może dojść do nieporozumienia ze względu na ich charaktery.
 
+# Historia z Duranem i Kasparem
+To się zdarzyło trzy miesiące przed wydarzeniami opisanymi w opowiadaniu.
+Duran i Kaspar to bracia, są drwalami.
+Klara, żona Durana, poroniła.
+"Przewróciła się niezdara", tak powiedział Duran.
+Starsza Matka wysłała Mirellę, aby pomogła Klarze.
+Mirella, kiedy myła Klarę, zauważyła ślady maltretowania.
+Klara upierała się, że to był wypadek, ale Mirella zauważyła, jak bardzo boi się męża.
+Naiwnie i impulsywnie wyrzuciła mu to wszystko w twarz.
+Duran postanowił dać jej nauczkę, żeby się nie wtrącała w cudze sprawy i trzymała język za zębami.
+Zawołał Kaspara, wykręcili jej ręce i zawlekli za wieś do zagajnika.
+Tam napotkał ich Jonas, kiedy się nad nią pastwili.
+Jonas jednym ciosem złamał Duranowi szczękę. Kaspar zdążył uciec.
+Mirella nastawiła Duranowi szczękę, stwierdziła, że trzeba go jakoś dostarczyć do Klary.
+Jonas postanowił użyć w tym celu wózka na zwłoki.
+Ojciec przypomniał Jonasowi, że nie do tego służy, ale nie zabronił mu.
+Razem przywieźli nieprzytomnego Durana ze złamaną szczęką do Klary.
+"Przewrócił się niezdara", oświadczyła wesoło Mirella.
+Duran był zdany na opiekę kobiet, nad którymi wcześniej się pastwił.
+Szczęka się zrosła, ale Duran mógł tylko niewyraźnie mamrotać.
+Nie mógł znieść upokorzenia i opuścił wieś. Nikt o nim więcej nie słyszał.
+
 # Intencje Mirelli
 Mirella go wybiera Jonasa do rytuału płodności nie dlatego, żeby go wykorzystać, wręcz przeciwnie.
 Chce wykorzystać rytuał, żeby się zbliżyć do Jonasa. Chce wykorzystać zbliżenie fizycznie, żeby się zbliżyć do niego emocjonalnie.
@@ -20,6 +42,8 @@ Jonas źle to odebrał, wziął to do siebie. Mirella nie zdawała sobie z tego 
 Przed świętem Mirella faktycznie była bardzo zajęta. Zostanie Córką Danu jest dla niej bardzo ważne, to determinuje całe jej życie.
 
 # Strażnik Umarłych
+Jonas i jego ojciec to grabarze mieszkający przy cmentarzu, w pewnym oddaleniu od wsi.
+Sam ich widok kojarzy się ze śmiercią. Przypomina o śmierci.
 Słowa "zapach matki" zawierają ważną wskazówkę: Jonas początkowo był wychowywany przez obydwoje rodziców. Matka mieszkała z nimi.
 Jakob miał żonę. Po jej śmierci zgorzkniał, stał się oschły i ponury.
 Rola Strażnika Umarłych nie wyklucza założenia rodziny. Wręcz przeciwnie, przedłużenie rodu i przekazanie urzędu męskiemu potomkowi jest istotne.
