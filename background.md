@@ -63,7 +63,8 @@ To jest niebezpieczny świat, wioska jest narażona na ataki. Dlatego też jest 
 Powodem ataku było przywabienie bestii przez odgłosy świątecznej zabawy. Wdarły się południową bramą, kiedy próbował przed nimi uciec Kaspar.
 To zdarzenie losowe, niezależne. Odpowiednikiem w historycznym średniowieczu mógłby być najazd wikingów. Jeden Tarwos, pięć Garanów.
 Docierają do głównego placu. Garany atakują ludzi bawiących się wokół ogniska. Jest wielu rannych. Ginie Lena (dziewczynka) i Peire. Tarwos odrąbuje mu głowę i wznosi wysoko.
-Ktoś dzwoni na alarm. Ludzie chowają się w spichlerzu i tam barykadują. W innej części wioski organizuje się zbrojna grupa.
+Ktoś dzwoni na alarm. Ludzie chowają się w spichlerzu i tam barykadują.
+Część ludzi ucieka zachodnią bramą, docierają do ojca Jonasa, który rusza na pomoc. W innej części wioski organizuje się zbrojna grupa.
 Do wioski dociera ojciec Jonasa. Garany próbują dostać się do spichlerza. Uzbrojona (w narzędzia) grupa mieszkańców rzuca się na nich. Falko przebija jednego z nich widłami. Drugi wbija mu w plecy włócznię.
 Ojciec Jonasa z zaskoczenia trafia Tarwosa w pęcinę. Ucieka przed nim na podwórze z drewutnią, wściekły Tarwos goni go. Zabija go toporem, samemu przy tym nadziewając się na rydel.
 Tarwos był ich przewodnikiem, jest najpotężniejszy. Garany podążają za nim ślepo, dlatego po śmiertelnym ranieniu tarwosa przez Jakoba, uciekają za nim. To kończy atak.
