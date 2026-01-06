@@ -12,7 +12,7 @@ Zerknęła w tę samą stronę i mrugnęła do mnie porozumiewawczo:
 
 – Mirella będzie.
 
-To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Jedynie dla Mirelli byłem kimś więcej, niż tym, co wozi zwłoki. Ale nie miałem co się tam pokazywać. Od kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Wtedy zacząłem ją odprowadzać, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
+To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Dla Mirelli byłem kimś więcej, niż tym, co wozi zwłoki. Ale nie miałem co się tam pokazywać. Od kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Wtedy zacząłem ją odprowadzać, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
 
 – Jej naprawdę zależy. – Nie dawała za wygraną. – Nie bądź taki… Powiesz coś w końcu?
 
@@ -470,7 +470,9 @@ Wstaje. Ociera ręce o fartuch.
 
 ***
 
-Zagajnik za wsią.
+Zagajnik za wsią. Słyszę jej krzyk.
+
+– I po co się wtrącasz. Przewróciła się niezdara i tyle.
 
 Kaspar trzyma Mirellę za włosy. Duran uderza pięścią w brzuch.
 
@@ -478,7 +480,7 @@ Jeden cios. Duran leży na ziemi. Kaspar ucieka.
 
 ***
 
-Kaspar leży pod południową bramą. Nie zdążył jej zamknąć. Ma poderżnięte gardło.
+Kaspar leży pod południową bramą. Nie zdążył jej zamknąć. Wszędzie ślady wielkich ptasich stóp.
 
 Ładuję ciało na wózek.
 
@@ -550,7 +552,7 @@ Zaparłem się plecami, ciągnąłem rękami, pchałem nogami, unosiłem kamień
 
 Osunąłem się plecami po ścianie grobu. Ręce i nogi dygotały, nie byłem w stanie się podnieść. Zamknąłem oczy i tak leżałem, ciężko dysząc.
 
-Ciało Raimona rozorane pazurami. Ciało Falka z ziejącą dziurą w klatce piersiowej. Ciało Peire z odrąbaną głową. Ciało młodziutkiej Leny. Ciało Kaspara z szyją przerżniętą do połowy.
+Ciało Raimona rozorane pazurami. Ciało Falka z ziejącą dziurą w klatce piersiowej. Ciało Peire z odrąbaną głową. Ciało młodziutkiej Leny. Ciało Kaspara z wydziobanym okiem.
 
 Ciało ojca przygwożdżone toporem. Jego twarz zalana plugawą krwią.
 
