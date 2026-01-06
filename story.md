@@ -44,7 +44,7 @@ Chwyciłem nóż i ostrożnie wsunąłem go w szczelinę, delikatnie podważają
 
 – Dużo ich potrzebujesz?
 
-– Dwa tuziny larw opuchlaka na jedną kroplę szarego mleka – odrzekła, nie przerywając pracy. – A muszę przygotować pełną dawkę.
+– Dwa tuziny larw opuchlaka na jedną kroplę szarego mleka – wyrecytowała, nie przerywając pracy. – A muszę przygotować pełną dawkę.
 
 – A pełna dawka to ile?
 
