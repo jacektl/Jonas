@@ -6,15 +6,15 @@ Wzruszyłem ramionami. Spojrzałem wymownie w stronę podwórza, skąd dobiegał
 
 – No weź… – ściszyła głos. – Będziesz się przejmował starym ponurakiem.
 
-Była za młoda, żeby to zrozumieć. To są sprawy żywych, my służymy umarłym – tak zawsze mówił nasz ojciec, tonem, jakby chciał mnie pocieszyć.
+Nie rozumiała tego. Podawała ludziom jedzenie i piwo, wszyscy ją lubili. A sam mój widok to dla nich zły omen. To są sprawy żywych, my służymy umarłym – tak zawsze mówił nasz ojciec, tonem, jakby chciał mnie pocieszyć.
 
 Zerknęła w tę samą stronę i mrugnęła do mnie porozumiewawczo:
 
 – Mirella będzie.
 
-To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Nie miałem co się tam pokazywać. Zawsze mnie unikali. A kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Odprowadzałem wtedy Mirellę, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
+To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Jedynie dla Mirelli byłem kimś więcej, niż tym, co wozi zwłoki. Ale nie miałem co się tam pokazywać. Od kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Wtedy zacząłem ją odprowadzać, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
 
-– Jej naprawdę zależy. – Nie dawała za wygraną. – Nie bądź taki… Powiedz coś w końcu.
+– Jej naprawdę zależy. – Nie dawała za wygraną. – Nie bądź taki… Powiesz coś w końcu?
 
 – Muszę się różami zająć. – Pokazałem na konew. – Upał dziś będzie.
 
@@ -344,17 +344,19 @@ Patrzyłem pod nogi na pokrytą ptasimi odchodami ziemię, szukając plam krwi, 
 
 Doszedłem do zapadniętej pryzmy kompostu wymieszanego z gnojówką. Przez swojski, kwaśny zapach przebijał się mdlący odór juchy tarwosa. Wyrwa w ogrodzeniu prowadziła na kolejne podwórze.
 
+– Jonas! Jesteś! – Od strony placu dobiegł do mnie głos Jany. – Widziałeś tatę? Mówili, że ten największy z rogami tędy za nim pobiegł.
+
 Szerokie rozbryzgi krwi wyraźnie się odznaczały na rozsypanych szczapach. Szedłem dalej po śladach, które prowadziły między stosami polan, aż za drewutnię. I tam go znalazłem.
 
 Leżał na wznak, przygwożdżony do ziemi olbrzymim toporem wbitym głęboko w pierś. Twarz miał zalaną spienioną juchą, rozlaną wokół szerokim półksiężycem. W dłoni wciąż ściskał trzonek rydla.
 
-– Jonas…? – Usłyszałem niepewny głos Jany.
+– Gdzie byłeś? My się w spichlerzu ukryliśmy – Jana podchodziła coraz bliżej. – A potem usłyszałam, jak tata mnie woła.
 
 Stałem bez ruchu i patrzyłem.
 
 Tarwos powalił go na ziemię. Ujął topór oburącz. Wziął zamach z wyskoku. Ciężar topora pociągnął go do przodu. Rydel był ostry jak brzytwa. Wystarczyło ustawić go w ostatniej chwili. Bestia sama się na niego nadziała.
 
-– Jonas? – Jana podchodziła coraz bliżej.
+– Słyszysz mnie w ogóle? Co się… – Nagle urwała.
 
 Zaczęła krzyczeć.
 
