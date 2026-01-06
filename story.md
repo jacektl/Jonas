@@ -18,7 +18,7 @@ To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrz
 
 – Muszę się różami zająć. – Pokazałem na konew. – Upał dziś będzie.
 
-– Oj, Jonas… – Chciała coś jeszcze powiedzieć, ale tylko westchnęła i pokręciła głową. Pobiegła do wsi.
+– Oj, braciszku… – Chciała coś jeszcze powiedzieć, ale tylko westchnęła i pokręciła głową. Pobiegła do wsi.
 
 ***
 
@@ -252,7 +252,7 @@ Gdy wracaliśmy, w sosnowym borze zaczynał szarzeć świt. Tuż przed nami, wpr
 
 Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce między pniami, a nad nami zaczęły rytmicznie rozbrzmiewać jej drobne, drżące trele. Zaczęła krążyć między koronami sosen, a jej śpiew niósł się po całym borze. Długa, łagodna melodia wznosiła się delikatnie, przerywana krótkimi, bulgoczącymi frazami, i opadała do niskich, miękkich tonów.
 
-Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej.
+Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej. Zapach jej włosów zmieszał się z aromatem żywicy i pokrytych rosą igieł.
 
 Lerka śpiewała coraz ciszej, z coraz dłuższymi pauzami, aż jej głos zamienił się w pojedyncze, przeciągłe ćwierkanie. Ostatni świergot zawibrował delikatnie i ucichł.
 
@@ -344,13 +344,13 @@ Patrzyłem pod nogi na pokrytą ptasimi odchodami ziemię, szukając plam krwi, 
 
 Doszedłem do zapadniętej pryzmy kompostu wymieszanego z gnojówką. Przez swojski, kwaśny zapach przebijał się mdlący odór juchy tarwosa. Wyrwa w ogrodzeniu prowadziła na kolejne podwórze.
 
-– Jonas! Jesteś! – Od strony placu dobiegł do mnie głos Jany. – Widziałeś tatę? Mówili, że ten największy z rogami tędy za nim pobiegł.
+– Jonas! Jesteś! – Od strony głównego placu dobiegł do mnie głos Jany. – Widziałeś tatę? Mówili, że tędy za nim pobiegł ten największy, z rogami.
 
 Szerokie rozbryzgi krwi wyraźnie się odznaczały na rozsypanych szczapach. Szedłem dalej po śladach, które prowadziły między stosami polan, aż za drewutnię. I tam go znalazłem.
 
 Leżał na wznak, przygwożdżony do ziemi olbrzymim toporem wbitym głęboko w pierś. Twarz miał zalaną spienioną juchą, rozlaną wokół szerokim półksiężycem. W dłoni wciąż ściskał trzonek rydla.
 
-– Gdzie byłeś? My się w spichlerzu ukryliśmy – Jana podchodziła coraz bliżej. – A potem usłyszałam, jak tata mnie woła.
+– Gdzie byłeś? My się w spichlerzu ukryliśmy – Jana podchodziła coraz bliżej. – Słyszałam, jak tata mnie woła.
 
 Stałem bez ruchu i patrzyłem.
 
@@ -470,9 +470,9 @@ Wstaje. Ociera ręce o fartuch.
 
 ***
 
-Zagajnik za wsią. Słyszę jej krzyk.
+Zagajnik za wsią. Słyszę jej zdławiony krzyk.
 
-– I po co się wtrącasz. Przewróciła się niezdara i tyle.
+– Było się wtrącać?. Przewróciła się niezdara i tyle.
 
 Kaspar trzyma Mirellę za włosy. Duran uderza pięścią w brzuch.
 
@@ -480,7 +480,7 @@ Jeden cios. Duran leży na ziemi. Kaspar ucieka.
 
 ***
 
-Kaspar leży pod południową bramą. Nie zdążył jej zamknąć. Wszędzie ślady wielkich ptasich stóp.
+Kaspar leży pod południową bramą. Nie zdążył jej zamknąć. Wszędzie ślady wielkich, ptasich stóp.
 
 Ładuję ciało na wózek.
 
