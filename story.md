@@ -1,3 +1,7 @@
+*Szeretem a beteg rózsákat*
+(Kocham chore róże)
+— **Ady Endre**, *A Halál rokona*
+
 Zapowiadał się skwarny dzień. Szedłem z konwią do studni, kiedy minęła mnie Jana – obładowana gałązkami brzozy i lipy, z naręczem polnych kwiatów przyciśniętym do piersi.
 
 – Jonas! Muszę lecieć do karczmy, Arnaut powiedział, że mam przyozdobić północną bramę! – wyrzuciła jednym tchem. – Przyjdziesz później?
