@@ -68,6 +68,10 @@ Zamilkłem. Odgarniałem ziemię, żeby odsłonić boczne odgałęzienia.
 
 Pokiwałem głową. Pracowaliśmy dalej w milczeniu.
 
+– Przepraszam. Wiem, że potrafisz milczeć – powiedziała po chwili. – Jak grób.
+
+Uśmiechnąłem się.
+
 ***
 
 Ukłucie ostrego bólu wyrwało mnie ze wspomnień. Ostrożnie wyjąłem kolec, który wbił mi się w dłoń. Czarne róże mają kolce niczym kocie pazury. Otarłem pot z czoła. Słońce chyliło się ku zachodowi, ale wciąż grzało niemiłosiernie. Wyprostowałem się i rozejrzałem. Zostało jeszcze kilkanaście krzewów. Rozciągnąłem ramiona i zabrałem się z powrotem do pracy.
