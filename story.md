@@ -1,3 +1,9 @@
+Szeretem a beteg rózsákat
+
+Ady Endre, A Halál rokona
+
+ 
+
 Zapowiadał się skwarny dzień. Szedłem z konwią do studni, kiedy minęła mnie Jana – obładowana gałązkami brzozy i lipy, z naręczem polnych kwiatów przyciśniętym do piersi.
 
 – Jonas! Muszę lecieć do karczmy, Arnaut powiedział, że mam przyozdobić północną bramę! – wyrzuciła jednym tchem. – Przyjdziesz później?
@@ -6,21 +12,27 @@ Wzruszyłem ramionami. Spojrzałem wymownie w stronę podwórza, skąd dobiegał
 
 – No weź… – ściszyła głos. – Będziesz się przejmował starym ponurakiem.
 
-Nie rozumiała tego. Podawała ludziom jedzenie i piwo, wszyscy ją lubili. A sam mój widok to dla nich zły omen. To są sprawy żywych, my służymy umarłym – tak zawsze mówił nasz ojciec, tonem, jakby chciał mnie pocieszyć.
+Co ona mogła wiedzieć. Podawała ludziom jedzenie i piwo, wszyscy ją lubili. A ja woziłem zwłoki. To są sprawy żywych, my służymy umarłym – tak zawsze mówił mi nasz ojciec, tonem, jakby chciał mnie pocieszyć.
 
 Zerknęła w tę samą stronę i mrugnęła do mnie porozumiewawczo:
 
 – Mirella będzie.
 
-To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Dla Mirelli byłem kimś więcej, niż tym, co wozi zwłoki. Ale nie miałem co się tam pokazywać. Od kiedy złamałem Duranowi szczękę, zaczęli unikać mnie jeszcze bardziej. Wtedy zacząłem ją odprowadzać, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
+To żadna nowina. Wszystkie dziewczyny od guślarki zawsze brały udział w obrzędach. Ale nie miałem co się tam pokazywać. Oprócz Mirelli wszyscy będą mnie traktować jak zły omen.
 
-– Jej naprawdę zależy. – Nie dawała za wygraną. – Nie bądź taki… Powiesz coś w końcu?
+No i złamałem Duranowi szczękę. Mieli dodatkowy powód, żeby mnie unikać. Potem ją odprowadzałem, gdzie tylko się dało – żeby nikomu nie przyszło do głowy znowu podnieść na nią rękę. Wydawało mi się, że to nawet lubiła. Ale ostatnio przestała mieć dla mnie czas. Pomyślałem, że może nie chce, żebym odstraszał od niej ludzi. Nie narzucałem się.
+
+– Ja jej mówiłam, jak to z tobą jest… Ona to rozumie. Naprawdę jej zależy. – Moja siostra nie dawała za wygraną. – Powiesz coś w końcu?
 
 – Muszę się różami zająć. – Pokazałem na konew. – Upał dziś będzie.
 
-– Oj, braciszku… – Chciała coś jeszcze powiedzieć, ale tylko westchnęła i pokręciła głową. Pobiegła do wsi.
+– Oj, Jonas… – Chciała coś jeszcze powiedzieć, ale tylko westchnęła i pokręciła głową. Pobiegła do wsi.
+
+
 
 ***
+
+
 
 Uklęknąłem. Owiał mnie gorzki, mulisty zapach kwiatów. Wymacałem korzenie, wcisnąłem palce w glebę. Była chłodna, jeszcze lekko wilgotna od rosy, i zbita.
 
@@ -34,7 +46,11 @@ Po pewnym czasie uznałem, że rosa nie powinna się już gromadzić. Obejrzałe
 
 Wziąłem kosz i podszedłem do kolejnego krzewu.
 
+
+
 ***
+
+
 
 W buczynie unosił się zapach mokrego mchu i błota.
 
@@ -44,7 +60,7 @@ Chwyciłem nóż i ostrożnie wsunąłem go w szczelinę, delikatnie podważają
 
 – Dużo ich potrzebujesz?
 
-– Dwa tuziny larw opuchlaka na jedną kroplę szarego mleka – wyrecytowała, nie przerywając pracy. – A muszę przygotować pełną dawkę.
+– Na jedną kroplę szarego mleka dwa tuziny larw opuchlaka – wyrecytowała, nie przerywając pracy. – A muszę przygotować pełną dawkę.
 
 – A pełna dawka to ile?
 
@@ -62,9 +78,17 @@ Zamilkłem. Odgarniałem ziemię, żeby odsłonić boczne odgałęzienia.
 
 – Jonas, nie wiem – westchnęła. – Będę bardzo zajęta.
 
-Pokiwałem głową. Pracowaliśmy dalej w milczeniu.
+Pokiwałem głową. Pracowaliśmy dalej, nic nie mówiąc.
+
+– Przepraszam. Wiem, że potrafisz milczeć – powiedziała po chwili i zawiesiła głos. – Jak grób.
+
+Uśmiechnąłem się.
+
+
 
 ***
+
+
 
 Ukłucie ostrego bólu wyrwało mnie ze wspomnień. Ostrożnie wyjąłem kolec, który wbił mi się w dłoń. Czarne róże mają kolce niczym kocie pazury. Otarłem pot z czoła. Słońce chyliło się ku zachodowi, ale wciąż grzało niemiłosiernie. Wyprostowałem się i rozejrzałem. Zostało jeszcze kilkanaście krzewów. Rozciągnąłem ramiona i zabrałem się z powrotem do pracy.
 
@@ -112,7 +136,11 @@ Nie wierzyłem własnym uszom. Mirella ujęła mnie za rękę.
 
 Poszedłem.
 
+
+
 ***
+
+
 
 Pierwszy kęs wypełnił mi usta. Przeżuwałem łapczywie. Placek smakował wędzonym miodem i ziołami.
 
@@ -186,7 +214,11 @@ Zachichotała, jakbym powiedział coś bardzo zabawnego.
 
 Weszła między drzewa, nie oglądając się, czy idę za nią.
 
+
+
 ***
+
+
 
 Las był niezwykle gęsty, wypełniony balsamiczną wonią. Szliśmy już bardzo długo. Nie miałem pojęcia, gdzie jesteśmy. Za to Mirella orientowała się doskonale. Skręciła nagle w jakąś znaną sobie ścieżkę i straciłem ją z oczu. Stopy grzęzły w miękkim poszyciu, wciąż się wplątywałem w leszczynę, a gałęzie olchy chłostały mnie po twarzy. Zamajaczyła mi w ciemnej gęstwinie, pospieszyłem za nią.
 
@@ -206,7 +238,7 @@ Przesuwając palcami, wyczułem pod mchem ledwo widoczne, regularne wyżłobieni
 
 – A wcześniej sidhe. To ich symbole.
 
-Rozejrzałem się wokół. Widziałem niezwykle ostro; rozróżniałem pojedyncze źdźbła w jaskrawo zielonej trawie. Wzrok powędrował ku koronom drzew. Nad nimi niebo jarzyło się intensywną czerwienią, która płynnie przechodziła w złoto dojrzałej pszenicy, by wyżej stężeć w głęboki, ciemny błękit. Na jego tle zamigotały pierwsze gwiazdy.
+Rozejrzałem się wokół. Widziałem niezwykle ostro; rozróżniałem pojedyncze źdźbła w jaskrawo zielonej trawie. Wzrok powędrował ku koronom drzew. Nad nimi niebo jarzyło się intensywną czerwienią, która płynnie przechodziła w złoto dojrzałej pszenicy, by wyżej stężeć w ciemny, głęboki błękit. Na jego tle zamigotały pierwsze gwiazdy.
 
 Mirella stała przede mną w milczeniu. Gdy spojrzałem na nią, powiedziała:
 
@@ -246,7 +278,11 @@ Patrzyliśmy na siebie, oddychając głęboko, w tym samym rytmie.
 
 Zaczęła rozplatać warkocz.
 
+
+
 ***
+
+
 
 Gdy wracaliśmy, w sosnowym borze zaczynał szarzeć świt. Tuż przed nami, wprost z igliwia, wzbiła się w powietrze lerka.
 
@@ -254,7 +290,7 @@ Stanęliśmy w miejscu, podążając za nią wzrokiem. Zniknęła w szarówce mi
 
 Mirella położyła głowę na moim ramieniu. Objąłem ją mocniej. Zapach jej włosów zmieszał się z aromatem żywicy i pokrytych rosą igieł.
 
-Lerka śpiewała coraz ciszej, z coraz dłuższymi pauzami, aż jej głos zamienił się w pojedyncze, przeciągłe ćwierkanie. Ostatni świergot zawibrował delikatnie i ucichł.
+Melodia falowała nad budzącym się do życia lasem, na przemian przybliżając się i oddalając. Lerka śpiewała coraz spokojniej, z coraz dłuższymi pauzami, aż jej głos zamienił się w pojedyncze, przeciągłe ćwierkanie. Ostatni świergot zawibrował delikatnie i ucichł.
 
 Poczułem, jak jej ramię nagle drgnęło pod moją dłonią. Spojrzałem na nią pytająco.
 
@@ -326,7 +362,11 @@ Spojrzeliśmy jednocześnie w kierunku, skąd przybiegła bestia. W kierunku wsi
 
 Ruszyliśmy co tchu.
 
+
+
 ***
+
+
 
 Wschodnia brama była otwarta na oścież.
 
@@ -344,29 +384,81 @@ Patrzyłem pod nogi na pokrytą ptasimi odchodami ziemię, szukając plam krwi, 
 
 Doszedłem do zapadniętej pryzmy kompostu wymieszanego z gnojówką. Przez swojski, kwaśny zapach przebijał się mdlący odór juchy tarwosa. Wyrwa w ogrodzeniu prowadziła na kolejne podwórze.
 
-– Jonas! Jesteś! – Od strony głównego placu dobiegł do mnie głos Jany. – Widziałeś tatę? Mówili, że tędy za nim pobiegł ten największy, z rogami.
+– Jonas! Jesteś! – Od strony placu dobiegł do mnie głos Jany. – Widziałeś tatę? Mówili, że tędy za nim pobiegł ten największy, z rogami.
 
 Szerokie rozbryzgi krwi wyraźnie się odznaczały na rozsypanych szczapach. Szedłem dalej po śladach, które prowadziły między stosami polan, aż za drewutnię. I tam go znalazłem.
 
 Leżał na wznak, przygwożdżony do ziemi olbrzymim toporem wbitym głęboko w pierś. Twarz miał zalaną spienioną juchą, rozlaną wokół szerokim półksiężycem. W dłoni wciąż ściskał trzonek rydla.
 
-– Gdzie byłeś? My się w spichlerzu ukryliśmy – Jana podchodziła coraz bliżej. – Słyszałam, jak tata mnie woła.
+– Gdzie byłeś? My się w spichlerzu ukryliśmy – Jana podchodziła coraz bliżej. – Usłyszałam, jak tata mnie woła. Potem z nimi walczyli… Ale jak uciekły, to go już nie było.
 
 Stałem bez ruchu i patrzyłem.
 
-Tarwos powalił go na ziemię. Ujął topór oburącz. Wziął zamach z wyskoku. Ciężar topora pociągnął go do przodu. Rydel był ostry jak brzytwa. Wystarczyło ustawić go w ostatniej chwili. Bestia sama się na niego nadziała.
+Tarwos powalił go na ziemię. Ujął topór oburącz. Wziął zamach z wyskoku. Ciężar topora pociągnął go do przodu. Rydel był ostry jak brzytwa. W ostatniej chwili ojciec precyzyjnie go ustawił. Bestia sama się na niego nadziała.
 
 – Słyszysz mnie w ogóle? Co się… – Nagle urwała.
 
 Zaczęła krzyczeć.
 
-***
 
-Wózek. Kilka pozbijanych desek, dwa koła, dwa uchwyty. Pcham.
 
 ***
 
-Droga do wsi. Mirella utyka. Milczy.
+
+
+Dwa uchwyty. Kilka pozbijanych desek. Dwa koła.
+
+Pcham wózek przed sobą.
+
+ 
+
+Stoję nad nim. Stopy po obu stronach. Topór tkwi głęboko w piersi. Trzonek sterczy ukośnie. Chwytam oburącz.
+
+Jana mnie szarpie za rękaw. Cała się trzęsie. Usta szeroko otwarte.
+
+Topór nie chce wyjść. Poruszam trzonkiem w bok. Raz w jedną stronę, raz w drugą. Ciało rusza się razem z nim. Głowa kołysze się na boki.
+
+Patrzę, jak Jana bije mnie pięściami. W ramiona. W plecy.
+
+Przytrzymuję ramię stopą. Ciągnę gwałtownie za trzonek. Ciało podskakuje i opada.
+
+Topór wyszedł. Odrzucam go na bok.
+
+Kucam. Jedna ręka pod karkiem, druga pod kolanami. Podnoszę.
+
+Jana dygocze. Osuwa się na kolana.
+
+Ładuję ciało na wózek.
+
+Pcham wózek przed sobą.
+
+ 
+
+Świątynia. Główna sala. Katafalk przed ołtarzem. Kładę na nim ojca.
+
+ 
+
+Zagajnik za wsią. Stłumiony krzyk. Głos Durana:
+
+– Było się wtrącać? Przewróciła się niezdara i tyle.
+
+Kaspar trzyma Mirellę za włosy. Duran uderza pięścią w brzuch.
+
+Biegnę. Jeden cios. Duran leży na ziemi. Kaspar ucieka.
+
+ 
+
+– Złamałeś mu szczękę. Chwyć go za kark, o tak, i trzymaj mocno. – Pokazuje mi.
+
+Klęczę obok głowy Durana. Robię posłusznie, co każe Mirella. 
+
+Coś mu naciska pod uchem. Smaruje maścią. Robi opatrunek z dwóch chust. Zaciska mocno.
+
+Wstaje. Ociera ręce o fartuch.
+
+– Chodź, pokażemy go Klarze. W końcu przestanie się bać.
+
+ 
 
 Ojciec przy ogrodzeniu. Patrzy na wózek.
 
@@ -378,43 +470,39 @@ Na wózku leży Duran. Nieprzytomny. Obandażowana szczęka.
 
 Ojciec odwraca się. Naprawia ogrodzenie.
 
-Pcham wózek przed sobą.
+Mirella utyka. Milczy.
 
-***
+ 
 
-Droga do wsi. Jestem sam. Wchodzę zachodnią bramą.
+Ludzie schodzą mi z drogi. Koła toczą się po ubitej ziemi.
 
-Ludzie schodzą mi z drogi. Odwracają wzrok.
+Żona Durana. Purpurowa pręga na skroni. Patrzy na wózek.
 
-Koła toczą się po ubitej ziemi.
+– Przewrócił się niezdara – mówi Mirella.
 
-***
+Odwracają wzrok.
 
-Stoję nad nim. Stopy po obu stronach. Topór tkwi głęboko w piersi. Trzonek sterczy ukośnie. Chwytam oburącz.
+ 
 
-Jana szarpie mnie za rękaw. Cała się trzęsie. Usta szeroko otwarte.
+Kaspar leży pod południową bramą. Ma poderżnięte gardło. Próbował ją zamknąć. Nie zdążył. Wszędzie ślady wielkich, ptasich stóp.
 
-Topór nie chce wyjść. Poruszam trzonkiem w bok. Raz w jedną stronę, raz w drugą. Ciało rusza się razem z nim. Głowa kołysze się na boki.
+Ładuję ciało na wózek.
 
-Patrzę, jak Jana bije mnie pięściami. W ramiona. W plecy.
+ 
 
-Przytrzymuję ramię stopą. Ciągnę gwałtownie za trzonek. Ciało podskakuje i opada.
+Ciało z odrąbaną głową. Do przedramienia przymocowany bębenek. Obok leży piszczałka z trzema otworami.
 
-Topór wyszedł. Odrzucam go na bok.
+Zaraz obok na ziemi siedzi Mikel. Obok niego strzaskana viella, pęknięte struny. Nie rusza się. Patrzy. Drży.
 
-Kucam. Jedna ręka pod karkiem, druga pod kolanami. Podnoszę. Ciało jest ciężkie. Kładę na wózku.
+Ściągam bębenek.
 
-Jana dygocze. Osuwa się na kolana.
+Głowa leży kilka kroków dalej. Kładę ją obok ciała.
 
-Pcham wózek przed sobą.
+ 
 
-***
+Plac we wsi. Wygaszone ognisko. Ziemia cała we krwi.
 
-Świątynia. Główna sala. Katafalk przed ołtarzem. Kładę na nim ciało.
-
-***
-
-Plac we wsi. Ziemia cała we krwi. Wygaszone ognisko. Wymijam rannych. To są sprawy żywych.
+Pcham wózek przed sobą. Wymijam rannych. To są sprawy żywych.
 
 Cielsko potwora pod ścianą spichlerza. Długi, ostry dziób. Ludzki tułów przebity widłami. W dłoni włócznia z kamiennym grotem. Czarne pióra. Żółte stopy. Trzy palce do przodu i jeden do tyłu. Pazury.
 
@@ -422,69 +510,31 @@ Wiem, co to jest. Garan.
 
 Falko leży na boku. Z pleców między łopatkami sterczy druga włócznia. Chwytam za trzonek. Ciągnę. Odrzucam.
 
-Ładuję ciało na wózek.
+ 
 
-***
+Nad dziewczynką klęczy kobieta. Głaszcze ją po włosach, coś mówi do niej. Dziewczynka leży bezwładnie. Lniana sukienka cała we krwi.
 
-Ciało z odrąbaną głową. Do przedramienia przymocowany bębenek. Obok leży piszczałka z trzema otworami.
-
-Zaraz obok na ziemi siedzi Mikel. Na jego kolanach strzaskana viella, popękane struny. Nie rusza się. Drży. Patrzy przed siebie.
-
-Ściągam bębenek.
-
-Głowa leży kilka kroków dalej. Kładę ją obok ciała.
-
-***
-
-Ciemność. Koła toczą się po kamiennej podłodze. Kładę ciało obok innych.
-
-***
-
-Przy leżącej dziewczynce klęczy kobieta. Głaszcze ją po włosach, coś mówi do niej. Dziewczynka leży bezwładnie. Lniana sukienka cała we krwi.
-
-Odsuwam kobietę. Podnosi oczy. Ramiona sztywne jak drewno.
+Odsuwam kobietę.
 
 Ładuję ciało na wózek.
 
-***
+ 
 
-Wschodnia brama.
+Ulica przy wschodniej bramie.
 
-Mirella. Kładzie rękę na mojej piersi. Wskazuje pod ścianę. Raimon.
+Mirella. Kładzie rękę na mojej piersi. Wskazuje pod ścianę.
 
 Podnoszę ciało i kładę na wózku. Jest lekkie.
 
 Mirella trzyma mnie za ramię. Mówi coś. Jej usta się ruszają. Łzy na policzkach.
 
-Idę dalej. Pcham wózek przed sobą.
+Pcham wózek przed sobą.
 
-***
+ 
 
-– Złamałeś mu szczękę. Chwyć go za kark, o tak, i trzymaj mocno. – Pokazuje mi.
+Ciemność. Koła toczą się po kamiennej podłodze. Kładę ciało obok innych.
 
-Klęczę obok głowy Durana. Robię posłusznie, co każe Mirella.
-
-Coś mu naciska pod uchem. Smaruje maścią. Robi opatrunek z dwóch chust. Zaciska mocno.
-
-Wstaje. Ociera ręce o fartuch.
-
-***
-
-Zagajnik za wsią. Słyszę jej zdławiony krzyk.
-
-– Było się wtrącać?. Przewróciła się niezdara i tyle.
-
-Kaspar trzyma Mirellę za włosy. Duran uderza pięścią w brzuch.
-
-Jeden cios. Duran leży na ziemi. Kaspar ucieka.
-
-***
-
-Kaspar leży pod południową bramą. Nie zdążył jej zamknąć. Wszędzie ślady wielkich, ptasich stóp.
-
-Ładuję ciało na wózek.
-
-***
+ 
 
 – Posłuchaj mnie, Jonasie – Ojciec Baltazar patrzy nad moją głową – Jakob odszedł do domu przodków. Teraz przejmiesz wszystkie jego obowiązki. Czy wiesz, co to oznacza?
 
@@ -498,11 +548,11 @@ Czeka. Ponownie kiwam głową.
 
 Nie, mówi głos w mojej głowie. Po raz trzeci kiwam głową.
 
-– Doskonale. Nie zabieram ci już czasu. Masz dużo pracy przed sobą. Za trzy dni przybędę ze skrybą, odbiorę od ciebie przysięgę.
+– Doskonale. Nie zabieram ci już czasu. Masz przed sobą dużo pracy. Za trzy dni przybędę ze skrybą, odbiorę od ciebie przysięgę.
 
 Oddala się.
 
-***
+ 
 
 Podchodzi Mirella. Głaszcze mnie po policzku. Przytula się, ściska mocno. Długo. Chcę odwzajemnić uścisk. Stoję bez ruchu.
 
@@ -516,11 +566,13 @@ Jesteśmy sami.
 
 Patrzę na niego po raz ostatni. Zaczynam zaszywać całun.
 
+
+
 ***
 
-Pamiętam matkę. Pamiętam jej zapach. Zmarła, gdy miałem cztery lata, po urodzeniu Jany.
 
-Będzie leżał obok niej.
+
+Pamiętam matkę. Pamiętam jej zapach. Zmarła, gdy miałem cztery lata, po urodzeniu Jany. Będzie leżał obok niej.
 
 Zacząłem rydlem przecinać darń wzdłuż sznurka rozpiętego na wbitych w ziemię kołkach. Nazywał to otwieraniem ziemi. Wycinałem płaty darni na szerokość stopy, ostrożnie je podważałem i przenosiłem w zacienione miejsce. Znów zapowiadał się upał, więc każdy z nich zraszałem lekko wodą, a cały stos przykryłem płótnem. Kiedy będę je na powrót układał, darń musi być wciąż wilgotna, wtedy się dobrze zasklepi i ziemia się zamknie.
 
@@ -552,13 +604,15 @@ Zaparłem się plecami, ciągnąłem rękami, pchałem nogami, unosiłem kamień
 
 Osunąłem się plecami po ścianie grobu. Ręce i nogi dygotały, nie byłem w stanie się podnieść. Zamknąłem oczy i tak leżałem, ciężko dysząc.
 
-Ciało Raimona rozorane pazurami. Ciało Falka z ziejącą dziurą w klatce piersiowej. Ciało Peire z odrąbaną głową. Ciało młodziutkiej Leny. Ciało Kaspara z wydziobanym okiem.
+Ciało Raimona rozorane pazurami. Ciało Falka z ziejącą dziurą w klatce piersiowej. Ciało Peire z odrąbaną głową. Ciało młodziutkiej Leny. Ciało Kaspara wydziobanym okiem.
 
-Ciało ojca przygwożdżone toporem. Jego twarz zalana plugawą krwią.
+Ciało ojca przygwożdżone toporem. Jego twarz zalana spienioną krwią.
 
 Ciało garana przebite widłami. Ciało tarwosa wykrwawione w sosnowym igliwiu.
 
-Ciało Mirelli w jaskrawo zielonej trawie. Jej rozchylone usta, jej wyprężona szyja, jej nagie ramiona. Jaśniejący księżycowym blaskiem medalion między jej piersiami. Ciepło jej warg na moich wargach. Dotyk jej dłoni na moim ciele.
+Ciało Mirelli w jaskrawo zielonej trawie. Jej rozchylone usta, jej wyprężona szyja, jej nagie ramiona. Jej piersi. Medalion między nimi jaśnieje księżycowym blaskiem.
+
+Ciepło jej warg na moich wargach. Dotyk jej dłoni na moim ciele.
 
 Moje ciało.
 
@@ -571,7 +625,6 @@ Wsunąłem do grobu deskę, oparłem z jednej strony o dno, z drugiej o brzeg. P
 Odstawiłem wózek. Chwyciłem łopatę. Była osadzona na nowym, jesionowym stylisku. Drewno było wygładzone i pokryte bejcą.
 
 Chwiejąc się, wbiłem łopatę w wał pokruszonej gliny i zacząłem zasypywać grób. Całun znikał pod warstwą szarych, lepkich grudek. Marzyłem już tylko o tym, żeby to się skończyło. Żeby w końcu ziemia zamknęła się nad nim.
-
 Usypałem pierwszą warstwę, na wysokość stopy. Zabrałem się za jej ubijanie.
 
 Przy pierwszym uderzeniu ubijak pękł na pół.
