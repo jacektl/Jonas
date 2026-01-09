@@ -50,9 +50,10 @@ Rola Strażnika Umarłych nie wyklucza założenia rodziny. Wręcz przeciwnie, p
 Wniosek: istnieje potencjalna szczęśliwa przyszłość: Jonas i Mirella mogą wspólnie wychowywać dziecko.
 
 # Plan wioski
-Wioska jest ufortyfikowana, otoczona palisadą.
+Wieś ma formę owalnicy, w której zagrody są zwarcie w krąg wokół środkowego placu.
+Wioska jest ufortyfikowana, otoczona palisadą, o którą oparte są budynki.
 Do wioski prowadzą cztery bramy z czterech stron świata.
-Północna brama jest przy głównym szlaku, dlatego jest tam karczma z zajazdem.
+Północna brama jest przy głównym szlaku, dlatego jest tam karczma z zajazdem. Po drugiej stronie szlaku jest rzeka, przy której jest przystań oraz młyn.
 Południowa brama prowadzi na pola uprawne.
 Wschodnia brama prowadzi do głównego szlaku biegnącego przez las. Na wschód od wioski jest chata guślarki ukryta w lesie.
 Zachodnia brama prowadzi do świątyni i cmentarza, przy którym jest dom Jonasa, Jany i ich ojca.
@@ -60,7 +61,7 @@ Zachodnia brama prowadzi do świątyni i cmentarza, przy którym jest dom Jonasa
 # Atak na wioskę
 Tarwos i garany to są pół-ludzie, pół-zwierzęta. Częściowo rozumne. Potrafią walczyć zdobyczną bronią a także sami wytwarzać prymitywne włócznie.
 Obszar, gdzie roi się od takich potworów położony jest bardzo daleko od wsi. Bardzo rzadko, raz na kilkadziesiąt lat, zdarza się, że pojedyncze grupy zapuszczają się aż na te tereny.
-To jest niebezpieczny świat, wioska jest narażona na ataki. Dlatego też jest ufortyfikowana, otoczona palisadą. Wszystkie cztery bramy są strzeżone i zamykane na noc.
+Wioska jest narażona na różne inne ataki. Dlatego też jest ufortyfikowana, otoczona palisadą. Wszystkie cztery bramy są strzeżone i zamykane na noc.
 Powodem ataku było przywabienie bestii przez odgłosy świątecznej zabawy. Wdarły się południową bramą, kiedy próbował przed nimi uciec Kaspar.
 To zdarzenie losowe, niezależne. Odpowiednikiem w historycznym średniowieczu mógłby być najazd wikingów. Jeden Tarwos, pięć Garanów.
 Docierają do głównego placu. Garany atakują ludzi bawiących się wokół ogniska. Jest wielu rannych. Ginie Lena (dziewczynka) i Peire. Tarwos odrąbuje mu głowę i wznosi wysoko.
@@ -80,6 +81,28 @@ Nowy porządek symbolizują nazwy romańskie, a także z naszej tradycji chrześ
 Mirella służy staremu porządkowi. Jonas służy nowemu, funkcja Strażnika Umarłych podlega bezpośrednio kapłanom nowego porządku.
 To, że Mirella jest zła na siebie, że wygadała fragment receptury, nie znaczy, że Jonasowi nie ufa. Ostrzega go, ale ma do niego pełne zaufanie. Jest zła, że stało się to mimowolnie.
 
+# Trauma
+Narracja fragmentu opowiadania, w którym Jonas zwozi ciała do świątyni, odzwierciedla stan dysocjacji, w który wpada Jonas w reakcji na traumę.
+Objawy tego stanu to:
+1. Percepcja tunelowa i fragmentacja obrazu
+Mózg przestaje rejestrować rzeczywistość jako spójną całość i skupia się na wyizolowanych detalach. Pozwala to uniknąć konfrontacji z rzeczywistością.
+2. Afekt płaski i znieczulenie emocjonalne
+Dysocjacja odcina układ limbiczny (ośrodek czucia), zostawiając wyłącznie sferę motoryczną. Gdyby Jonas czuł, że to jego ojciec, nie byłby w stanie ruszyć trzonkiem topora.
+3. Depersonalizacja i derealizacja
+Jonas obserwuje otoczenie, jakby oglądał film lub patrzył na siebie z boku. Atak siostry nie wywołuje w nim reakcji obronnej ani emocjonalnej.
+4. Selektywna głuchota
+Mózg odcina nadmiar bodźców, aby nie dopuścić do przeciążenia poznawczego. Jonas nie słyszy krzyku siostry ani słów Mirelli.
+5. Automatyzm, kompulsywne powtarzanie czynności
+Automatyzm i powtarzanie tych samych czynności pozwala uniknąć załamania psychicznego. Jonas skupia się na ładowaniu ciał na wózek i pchaniu go przed sobą, bo jest to stała i pewna czynność.
+6. Rozszczepienie czasu i dezorientacja
+Trauma rozbija strukturę czasu. Przeszłość i teraźniejszość stają się jednym, mętnym obrazem.
+7. Mutyzm
+Jonas nie jest w stanie mówić. Może jedynie powtarzać kiwnięcia głową.
+8. Stupor
+Kiedy powtarzane automatyczne czynności ustają, Jonas nie jest w stanie się ruszyć. Mirella, przytulając i ściskając Jonasa (bodziec fizyczny), tak naprawdę osiąga swój cel: dociera do niego emocjonalnie, w jego umyśle pojawia się intencja: chce odwzajemnić uścisk. Nie wie o tym jednak, bo jego wola jest sparaliżowana. Jonas nie może wykonać czynności, która nie jest wyuczona i automatyczna.
+
 # Ziemia
 Wieś, pola uprawne i cmentarz powstały na terenie polodowcowym, na którym osadziła się glina zwałowa, tworząc morenę denną, w której utkwiły fragmenty skały krystalicznej przywleczone przez lądolód. Powstała tam rzeka, która wcięła się głęboko w polodowcowe wysoczyzny, tworząc terasy. Rósł tu gęsty las liściasty (grąd). Korzenie dębów i grabów penetrowały glinę, rozluźniając ją. Opady deszczu, przesiąkając przez leśną ściółkę, nabierały lekko kwaśnego odczynu. Woda ta systematycznie wypłukiwała najdrobniejsze cząsteczki iłu z górnych warstw i osadzała je niżej – tak powstały wyraźne warstwy. Pola uprawne i cmentarz powstały na terenie, gdzie las został wykarczowany. Cmentarz został zlokalizowany na wyższej terasie nadzalewowej. Dzięki temu chowane ciała są chronione przed wodą rzeczną i izolowane przez glinę od głębszych wód gruntowych. Powyższe procesy doprowadziły do powstania typowej gleby płowej o profilu Ap-Et-Bt-C. (antropogeniczny poziom próchniczy, poziom eluwialny, poziom iluwialny, skała macierzysta)
 Jonas, kopiąc grób, w ciągu dwóch godzin przekopał się przez historię ostatnich 20 000 lat.
+Właśnie tyle lat tkwił tam granitowy głaz narzutowy, dopóki Jonas go stamtąd nie usunął. Jak tego dokonał?
+Atak furii spowodował uwolnienie adrenaliny, która tymczasowo zniosła normalne limity neurologiczne chroniące ciało przed uszkodzeniem, umożliwiając ogromny wysiłek fizyczny. Po usunięciu kamienia nastąpił nagły spadek adrenaliny, po czym ogromny dług tlenowy wywołał drżenie mięśniowe i silne osłabienie organizmu.
