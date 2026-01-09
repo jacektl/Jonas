@@ -59,6 +59,7 @@ Zachodnia brama prowadzi do świątyni i cmentarza, przy którym jest dom Jonasa
 
 # Atak na wioskę
 Tarwos i garany to są pół-ludzie, pół-zwierzęta. Częściowo rozumne. Potrafią walczyć zdobyczną bronią a także sami wytwarzać prymitywne włócznie.
+Obszar, gdzie roi się od takich potworów położony jest bardzo daleko od wsi. Bardzo rzadko, raz na kilkadziesiąt lat, zdarza się, że pojedyncze grupy zapuszczają się aż na te tereny.
 To jest niebezpieczny świat, wioska jest narażona na ataki. Dlatego też jest ufortyfikowana, otoczona palisadą. Wszystkie cztery bramy są strzeżone i zamykane na noc.
 Powodem ataku było przywabienie bestii przez odgłosy świątecznej zabawy. Wdarły się południową bramą, kiedy próbował przed nimi uciec Kaspar.
 To zdarzenie losowe, niezależne. Odpowiednikiem w historycznym średniowieczu mógłby być najazd wikingów. Jeden Tarwos, pięć Garanów.
@@ -78,3 +79,7 @@ Groźba Mirelli (spalą mnie na stosie) jest realna.
 Nowy porządek symbolizują nazwy romańskie, a także z naszej tradycji chrześcijańskiej: Kaspar, Baltazar. Stary porządek to nazwy celtyckie.
 Mirella służy staremu porządkowi. Jonas służy nowemu, funkcja Strażnika Umarłych podlega bezpośrednio kapłanom nowego porządku.
 To, że Mirella jest zła na siebie, że wygadała fragment receptury, nie znaczy, że Jonasowi nie ufa. Ostrzega go, ale ma do niego pełne zaufanie. Jest zła, że stało się to mimowolnie.
+
+# Ziemia
+Wieś, pola uprawne i cmentarz powstały na terenie polodowcowym, na którym osadziła się glina zwałowa, tworząc morenę denną, w której utkwiły fragmenty skały krystalicznej przywleczone przez lądolód. Powstała tam rzeka, która wcięła się głęboko w polodowcowe wysoczyzny, tworząc terasy. Rósł tu gęsty las liściasty (grąd). Korzenie dębów i grabów penetrowały glinę, rozluźniając ją. Opady deszczu, przesiąkając przez leśną ściółkę, nabierały lekko kwaśnego odczynu. Woda ta systematycznie wypłukiwała najdrobniejsze cząsteczki iłu z górnych warstw i osadzała je niżej – tak powstały wyraźne warstwy. Pola uprawne i cmentarz powstały na terenie, gdzie las został wykarczowany. Cmentarz został zlokalizowany na wyższej terasie nadzalewowej. Dzięki temu chowane ciała są chronione przed wodą rzeczną i izolowane przez glinę od głębszych wód gruntowych. Powyższe procesy doprowadziły do powstania typowej gleby płowej o profilu Ap-Et-Bt-C. (antropogeniczny poziom próchniczy, poziom eluwialny, poziom iluwialny, skała macierzysta)
+Jonas, kopiąc grób, w ciągu dwóch godzin przekopał się przez historię ostatnich 20 000 lat.
