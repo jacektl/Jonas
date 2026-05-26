@@ -81,6 +81,19 @@ Nowy porządek symbolizują nazwy romańskie, a także z naszej tradycji chrześ
 Mirella służy staremu porządkowi. Jonas służy nowemu, funkcja Strażnika Umarłych podlega bezpośrednio kapłanom nowego porządku.
 To, że Mirella jest zła na siebie, że wygadała fragment receptury, nie znaczy, że Jonasowi nie ufa. Ostrzega go, ale ma do niego pełne zaufanie. Jest zła, że stało się to mimowolnie.
 
+# Tło podboju i układ sił
+Mniej więcej dwieście lat wcześniej ziemie obecnej wioski należały do lokalnego tuath i żyły według własnego prawa. Potem przyszła zbrojna ekspansja Nowego Porządku. Opór był długi i brutalny, a po jego stłumieniu doszło do masakry, która uderzyła przede wszystkim w miejscowych mężczyzn. Nie był to „naturalny zanik” dawnego świata, tylko świadomie wymuszone zerwanie ciągłości.
+
+Po pacyfikacji ruszyło osadnictwo: do prowincji napłynęli mężczyźni z zewnątrz, którzy zakładali rodziny z miejscowymi kobietami. Oficjalnie ukształtował się porządek patriarchalny: urząd, świątynia, pobór podatków i prawo dziedziczenia były męskie, a wieś miała być posłuszna centrum nawet wtedy, gdy centrum było bardzo daleko.
+
+Nie powstała jednak prosta opozycja „patriarchat kontra matriarchat”. W codziennym życiu kobiety nie rządzą formalnie, ale to one podtrzymują obieg tego, co konieczne: narodziny, leczenie, opiekę, przygotowanie do śmierci, pieśń żałobną, pamięć rodową, lokalne sieci przysługi i milczenia. Mężczyźni reprezentują urząd i przemoc państwa, kobiety zarządzają trwaniem wspólnoty.
+
+Właśnie dlatego dawne tradycje przetrwały głównie w formie kobiecej, dyskretnej i praktycznej. To, co widowiskowe, wojenne i jawnie rytualne, zostało rozbite najpierw przez podbój, potem przez zakazy. Ocalało to, co można było ukryć pod codziennością: receptury, pieśni, gesty ochronne, wiedza o porodzie, chorobie i żałobie. W odległych prowincjach, gdzie kontrola administracji jest rzadsza i bardziej powierzchowna, taki przekaz mógł trwać przez pokolenia.
+
+Starsza Matka ucieleśnia tę ciągłość: nie „resztkę folkloru”, tylko żywe archiwum linii pamięci starszej niż Nowy Porządek. Dlatego napięcie między świątynią a praktykami lokalnymi jest stałe. Administracja chce porządku i widzialności, a stare praktyki działają w cieniu, przez zaufanie i przemilczenia. Kiedy władza zaczyna rozumieć, że to nie są niewinne zwyczaje, lecz realna forma wpływu, pojawia się logika polowania na czarownice: strach, donos, pokazowe kary.
+
+Ten świat działa więc warstwowo: oficjalne instytucje i nieoficjalna pamięć nieustannie się ścierają, ale też muszą ze sobą współistnieć. Ludzie adaptują się do obu porządków naraz, często za cenę milczenia, podwójnej lojalności i życia w ciągłym napięciu.
+
 # Trauma
 Narracja fragmentu opowiadania, w którym Jonas zwozi ciała do świątyni, odzwierciedla stan dysocjacji, w który wpada Jonas w reakcji na traumę.
 Objawy tego stanu to:
