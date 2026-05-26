@@ -147,7 +147,14 @@ Kamień w ziemi był pieczęcią. Kiedy Jonas wyciągnął kamień z grobu, otwo
 
 To jest pętla czasowa, podróż w czasie do punktu zero. Tym razem Jonas nie walczy z kamieniem, poddaje się. Kamień zostaje tam, gdzie był, puste wzgórze pozostaje zapieczętowane, granica miedzy światami jest zamknięta, nie dochodzi do pęknięcia, czerni i zagłady.
 
-
-
 I tak, jest tam wciąż Mirella, która może znaleźć Jonasa płaczącego nad niedokończonym grobem i utulić go swoją pieśnią. A on może przypomnieć sobie swoją ostatnią rozmowę z ojcem i zanim zacznie kopać grób w innym miejscu, uświadomić sobie, że najpierw trzeba coś jeszcze zrobić: naprawić ubijak. Idzie do szopy i zaczyna szukać dłuta.
 
+Zasypuje grób z kamieniem, ubija ziemię jak należy i trzymając kołki i sznurek, rozgląda się za innym miejscem i bez chwili wahania rozpina kołki sznurek i otwiera ziemię na grobie matki
+
+kiedy Jonas był mały, za mały, żeby pomagać ojcu przy grobach, pomagał w ossuarium, razem z ojcem czyścili kości wykopane z gliny
+
+i teraz czyści czaszkę swojej matki a potem tylko gładzi ją palcami
+
+wkłada ciało ojca do odkopanego grobu matki wśród jej kości a na jego piersi kładzie czaszkę matki
+
+zanim zacznie zakopywać grób, patrzy i patrzy i patrzy na całuj z ojcem i czaszkę matki
