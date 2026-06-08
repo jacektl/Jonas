@@ -25,3 +25,31 @@ Skinąłem głową. Zmarszczyła brwi.
 – Jonas. Wiem mnóstwo rzeczy o tobie, o których nie masz pojęcia.
 – Na przykład co?
 – Na przykład to, że chrapiesz.
+
+## Analiza literacka koncepcji kontynuacji „Święty czas, święta ziemia”
+
+### 1. Rdzeń opowieści i jej stawka
+Koncepcja ma wyraźny, silny rdzeń: pęknięcie między światami jest jednocześnie pęknięciem w relacjach rodzinnych i w pamięci wspólnoty. Stawka działa na trzech poziomach naraz: intymnym (Mirella–Jonas–Jakob), wspólnotowym (wieś pod presją Dominium) i metafizycznym (Zasłona, Czerń, podróż Wędrowca). To bardzo dobra baza pod cykl, bo każdy poziom może wzmacniać pozostałe.
+
+### 2. Najmocniejsze walory literackie
+- **Cielesność jako język świata**: poród, pieśń, żałoba, ziemia, kopanie grobów i dotyk nie są ozdobnikami, tylko nośnikami sensu.
+- **Kontrast porządków**: oficjalny (świątynia, urząd, Strażnik Umarłych) kontra ukryty (Starsze Matki, pieśni, rytuały).
+- **Zmiana perspektyw narracyjnych**: Jonas, Mirella i Jakob pozwalają pokazać ten sam świat przez trzy różne wrażliwości.
+- **Mitopoetycki potencjał Wędrowca**: echtra/immram dobrze łączy lokalną historię z większym, symbolicznym horyzontem.
+
+### 3. Spójność tematyczna cyklu
+Najlepiej wybrzmiewa motyw dziedziczenia nieprzeżytej traumy: ojciec, który nie umiał zapłakać, syn, który nie umie rozpaczać inaczej niż przemocą, i wnuk, który może przerwać ten wzór. W tej logice finałowa „opowieść o łzach” nie jest tylko rozwiązaniem fabularnym, ale etycznym zwrotem całego cyklu.
+
+### 4. Ryzyka kompozycyjne (i jak je kontrolować)
+- **Nadmiar worldbuildingu w dialogu**: w partii ze Starszą Matką warto dawkować informacje przez konflikt i decyzje Jonasa, nie przez jednorazowy wykład.
+- **Powtórzenia materiału koncepcyjnego**: te same sceny (np. kuchnia, poród, wzory) już teraz wracają w notatkach; w tekście finalnym trzeba zostawić jedną, najmocniejszą wersję.
+- **Balans jawności i tajemnicy**: ontologia poza-świata powinna pozostać częściowo niedopowiedziana, żeby nie osłabić grozy.
+- **Rejestr erotyczny**: ma potencjał, jeśli pozostanie konsekwentnie związany z psychiką Mirelli i funkcją narracyjną (regulacja lęku, bliskość, pamięć ciała).
+
+### 5. Rekomendacja dla dalszego rozwijania
+Najbardziej obiecujący kierunek to prowadzenie każdej części wokół jednego pytania dramatycznego:
+- **Mirella**: czy można ochronić dziecko i dom, gdy granica już przecieka?
+- **Jakob**: czy świat „odgłosów” da się przełożyć na świat „znaczeń” bez utraty siebie?
+- **Jonas**: czy można przejść od furii do żałoby i nie zniszczyć świata?
+
+W obecnym kształcie koncepcja ma duży potencjał literacki: jest zmysłowa, symbolicznie gęsta i oparta na mocnym konflikcie wewnętrznym, a nie tylko na intrydze.
