@@ -33,6 +33,15 @@ Można zainspirować się Molly Bloom w drugim opowiadaniu, ale nie w sensie str
 
  można wprowadzić żargon położnej opisując mniej lub bardziej barwnie dane zjawisko fizjologiczne, gesty ochronne wykonywane przez Mirellę, pieśń też jest naturalna i nadnaturalna, rytuał przejścia między światami, rytuał tkanek i wydzielin, ruch dłońmi i rytm pieśni
 
+ Detale sceny porodu Benedity w chacie (do wplecenia fabularnie i researchowo):
+ - Chata Benedity: nisko tlące się palenisko, kocioł z wrzątkiem nad ogniem, czyste lniane płótna podgrzewane przy brzegu paleniska.
+ - Marika jako silna nastoletnia asysta: stoi za Beneditą, podtrzymuje ją pod pachami i przez skurcze, mówi jej krótko i spokojnie do ucha; Mirella prowadzi pieśń i ręce, Marika prowadzi ciężar ciała rodzącej.
+ - Benedita jest drobna i rodzi pierwszy raz, ale dziecko schodzi potylicowo i równo: Mirella pilnuje wolniejszego tempa w końcówce, ciepłych okładów na krocze, ochrony dłonią tkanek i wydechu zamiast parcia "na siłę", żeby zmniejszyć ryzyko pęknięć.
+ - Ruch zamiast unieruchomienia: kołysanie biodrami, krążenia miednicą i zmiany oparcia na ścianie pod rytm pieśni; każdy refren "otwiera" i prowadzi w dół razem z rotacją główki.
+ - Środki ludowe, uspokajające ale nie usypiające: ciepła woda, miód z solą na zwilżenie ust, nacieranie lędźwi ciepłym tłuszczem z macierzanką, napar z melisy tylko w małych łykach, nacisk na oddech i głos zamiast odurzenia.
+ - Okłady i maści "położnej": krwawnik + babka + nagietek (napar do obmyć i kompresów), tłusta maść nagietkowa na obolałe tkanki po porodzie.
+ - Jedno dominujące zioło pamięci Mirelli: bylica (suszone pęki wiszą pod belkami "na ciężkie porody"), gorzko-kamforowy zapach wnika w dym, włosy i płótna, później wraca do niej w przebłyskach lęku i ulgi.
+
 
 
  i ten moment dławiącego lęku zanim dziecko zaczęło oddychać, 
